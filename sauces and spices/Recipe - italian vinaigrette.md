@@ -1,0 +1,29 @@
+# italian vinaigrette
+---
+Yield: 
+
+## Ingredients
+1/4 cup red wine vinegar
+2 tablespoons minced fresh oregano (or 2 teaspoons dried)
+1 clove garlic, minced
+1 teaspoon mustard powder
+3/4 cup extra-virgin olive oil
+1/2 teaspoon salt
+1/4 teaspoon black pepper
+
+
+## Instructions
+1. MIX together the vinegar, oregano, garlic, and
+mustard powder in a small bowl. 
+2. Add the olive
+oil in a steady stream while whisking to emul-
+sify. 
+3. Adjust the seasoning with salt and pepper
+and whisk until fully incorporated.
+
+
+## Notes
+
+This is a great marinade for chicken or shrimp,
+or it can be used instead of the lemon oil in
+our Green Cabbage Slaw (page 282).

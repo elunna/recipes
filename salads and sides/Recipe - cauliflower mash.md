@@ -1,0 +1,63 @@
+# cauliflower mash
+---
+Yield: 2 servings
+
+## Ingredients
+1 head cauliflower, cut into florets
+(about 4 cups)
+2 cloves garlic, minced
+1/2 cup coconut cream (see page 178)
+2 tablespoons ghee or clarified butter
+1 teaspoon salt
+1/4 teaspoon black pepper
+1/2 cup chicken broth
+1 tablespoon minced fresh parsley
+
+## Instructions
+1. BRING 2 cups of water to a boil ina large pot over
+medium-high heat. Add the cauliflower florets and gar-
+lic and simmer until the florets are fork-tender, about 15
+minutes.
+2. DRAIN the cauliflower and transfer to a food processor.
+Add the coconut cream, ghee, salt, and pepper and pulse
+until the cauliflower begins to turn smooth in consistency.
+Add the chicken broth one tablespoon at a time, pulsing
+to mix, until the desired consistency is achieved. Add the
+parsley and continue blending until completely smooth.
+Serve warm.
+
+###MAKE IT A MEAL: 
+This dish goes well with anything.
+Seriously, anything. But if you made us pick a few favorites,
+we'd say Braised Beef Brisket (page 214), Chicken Meatballs
+(page 226), Halibut with Citrus-Ginger Glaze (page 240),
+and Walnut-Crusted Pork Tenderloin (page 252).
+
+### MASHING 
+You can use a variety of tools for this dish,
+depending on how you prefer the texture of your mash. If
+you preter a silky smooth mash, the food processor is a must.
+If you like it really chunky, use a hand tool (like a potato
+masher or large kitchen fork) instead. If you like your mash
+somewhere in between, try using an immersion blender.
+
+
+## Notes
+
+This may be the most versatile recipe
+ever. It’s a lighter substitute for mashed
+potatoes, and has dozens of variations
+to match nearly any style of cuisine. Add
+more chicken broth if you like it extra
+creamy, or keep the chicken broth to
+just a tablespoon or so if you prefer it
+_ really thick. Try topping with crumbled
+Whole30-compliant bacon or crispy
+prosciutto; add a blend of fresh herbs
+like rosemary, oregano, and thyme;
+kick it up a notch with 2 tablespoons of
+grated, peeled fresh horseradish root or
+1 teaspoon chili powder; add a dollop of
+whole grain mustard (perfect alongside
+pork); or stir in shredded cabbage and
+kale sautéed in clarified butter or ghee.

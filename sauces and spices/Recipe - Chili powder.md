@@ -1,0 +1,26 @@
+# Chili powder
+---
+Yield:
+Category:
+Prep time:
+Rating:
+Source:
+URL:
+Image: 
+
+## Ingredients
+2 Tbls. mild dried chile
+1/2 tsp cayenne
+1/2 tsp black peppercorns
+2 tsp cumin seeds
+2 tsp coriander seeds
+1 Tbls. dried oregano
+
+## Instructions
+1. 
+2. 
+3. 
+
+## Notes
+
+If you're using whole spices toast them and then blend with powdered/leaf spices and then grind them all together in a coffee grinder.

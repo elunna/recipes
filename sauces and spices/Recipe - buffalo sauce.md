@@ -1,0 +1,47 @@
+# buffalo sauce
+---
+Yield: 
+
+## Ingredients
+1/2 cup coconut oil
+1/2 cup ghee or clarified butter
+1 cup hot sauce
+2 tablespoons apple cider vinegar
+1 clove garlic, minced
+
+## Instructions
+1. IN a small saucepan, gently melt the coconut oil and ghee
+over medium-low heat until completely liquefied.
+2. COMBINE the hot sauce, vinegar, and garlic ina medium
+mixing bowl and whisk until thoroughly blended. While
+whisking, drizzle in the melted coconut oil and ghee. The
+sauce should have a smooth, consistent texture.
+3. STORE this sauce in an airtight container in the fridge for
+up to 7 days. (Note, the coconut oil and ghee will solidify
+in the cold, so pull it out of the fridge, let it come back
+to room temperature before serving, and gently stir to
+reblend.)
+
+
+### BUFFALO WINGS 
+For the perfect buffalo wings, fire up
+the grill! Preheat the grill to medium-high heat (400°F). Add
+a pound of wings to the grill and close the lid. Turning the
+wings every few minutes, cook until lightly charred and the
+skin starts to bubble, 15 to 20 minutes. Toss the wings with
+the buffalo sauce in a large bowl immediately after removing
+them from the grill—then let them sit in the sauce for a few
+minutes before serving with a side of celery and carrots and
+our Ranch Dressing (page 316). (You can also preheat the
+oven to 375°F and, following the same technique, have golden,
+crispy wings in about an hour.)
+
+## Notes
+
+Want to kick your heat up a notch?
+Add 1/4 teaspoon cayenne to the mix—
+more if you’re feeling feisty. You can
+also mix the buffalo sauce into ground
+beef for a spicy twist on a burger. Top
+with a fried egg, some avocado, and
+a little more of the sauce mixture.
