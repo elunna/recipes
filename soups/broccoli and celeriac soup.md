@@ -7,12 +7,12 @@ Yield:
 - 1-2 tbsp of olive oil
 - 350 g of peeled and sliced celeriac
 - 1 head of broccoli stalk sliced and florets cut and reserved for later
-- 1/2 teaspoon of dried tarragon
-- 1 1/2 pints chicken stock
+- 1/2 tsp of dried tarragon
+- 1 1/2 pt chicken stock
 - 100g of chopped gorgonzola
 - 2 slim grilled slices of chopped smoky bacon to garnish
 - 1 dessert spoon of lemon juice
-- 1/2 teaspoon of sweet smoked papricka
+- 1/2 tsp of sweet smoked papricka
 
 ## Instructions
 1. In a heavy bottomed saucepan, heat the olive oil and sweat the chopped onions for 15 minutes, lid on. 

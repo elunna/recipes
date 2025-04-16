@@ -8,11 +8,11 @@ Yield:
 - 1 red bell pepper, seeded, ribs removed, and roughly chopped
 - 1/2 small onion, roughly chopped
 - 2 cloves garlic, minced
-- 1 1/2 cups canned crushed tomatoes
-- 1 1/2 teaspoons red wine vinegar
-- 1 tablespoon extra-virgin olive oil
-- 1/2 teaspoon salt
-- 1/2 teaspoon black pepper
+- 1 1/2 cup canned crushed tomatoes
+- 1 1/2 tsp red wine vinegar
+- 1 tbsp extra-virgin olive oil
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. PULSE the cucumber in a food processor until finely

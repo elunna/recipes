@@ -3,14 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-- 3 tablespoons clarified butter, ghee, or coconut oil
+- 3 tbsp clarified butter, ghee, or coconut oil
 - 1/2 cup diced onion
-- 3 cups diced seeded peeled butternut squash
+- 3 cup diced seeded peeled butternut squash
 - 2 cloves garlic, minced
-- 1/2 teaspoon ground ginger
-- 4 cups chicken broth
-- 1 teaspoon salt
-- 1/2 teaspoon black pepper
+- 1/2 tsp ground ginger
+- 4 cup chicken broth
+- 1 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. IN a large pot, melt the cooking fat over medium heat,
@@ -53,8 +53,8 @@ so your cubes are alla relatively consistent size.
 
 ## Notes
 Not sure how much squash to buy
-for this recipe? Generally, a 2-pound
-butternut squash yields 3 cups once
+for this recipe? Generally, a 2-lb
+butternut squash yields 3 cup once
 the seeds are removed, but don’t
 stress about having slightly more
 or less squash than the recipe calls

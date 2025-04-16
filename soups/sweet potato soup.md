@@ -3,21 +3,21 @@
 Yield: 
 
 ## Ingredients
-- 2 tablespoons cooking fat
+- 2 tbsp cooking fat
 - 2 large-diced peeled sweet potatoes
-- 1/2 teaspoon ground ginger (or
-- 2 tablespoons minced fresh ginger)
+- 1/2 tsp ground ginger (or
+- 2 tbsp minced fresh ginger)
 - 1 pinch ground cinnamon, plus extra for garnish
 - 1 cup full-fat coconut milk
-- 1/2 teaspoon salt
-- 1/4 teaspoon black pepper
+- 1/2 tsp salt
+- 1/4 tsp black pepper
 
 ## Instructions
 1. IN a Dutch oven or large pot, heat the cooking fat over
 medium heat, swirling to coat the bottom of the pot. When
 the fat is hot, add the sweet potatoes, stirring to coat them
 with the fat. Add the ginger and cinnamon and stir for
-15 seconds. Add 3 cups of water and the coconut milk and
+15 seconds. Add 3 cup of water and the coconut milk and
 bring to a boil. Simmer until the sweet potatoes become
 soft, about 15 minutes. Remove the pot from the heat.
 2. IN one or two batches, puree the sweet potato mixture in a
@@ -33,7 +33,7 @@ per, garnish with extra cinnamon, and serve.
 You could add any pre-cooked meat to
 this soup and make it a complete meal—try grilled chicken,
 sausage, ground beef, or scallops. Or, serve alongside our
-Stuffed Peppers (page 222), Thai Cucumber Cups (page
+Stuffed Peppers (page 222), Thai Cucumber cup (page
 234), or Mexican Tuna Boats (page 238).
 
 ### FRESH GINGER 
@@ -50,9 +50,9 @@ to catch the juices as you grate.
 
 ## Notes
 
-For a more savory soup, use 1/2 teaspoon
-garlic powder, 1/2 teaspoon onion
-powder, and 1 tablespoon fresh thyme
+For a more savory soup, use 1/2 tsp
+garlic powder, 1/2 tsp onion
+powder, and 1 tbsp fresh thyme
 leaves in place of the cinnamon, and
 add some fresh sliced mushrooms when
 you return the soup to the pot for the
@@ -64,5 +64,5 @@ onion and apple in the final stage of
 cooking, and top with chopped pecans.
 For a thinner soup, simmer for just 1 to
 2 minutes, then add compliant chicken
-broth one tablespoon at a time until
+broth one tbsp at a time until
 you reach the desired consistency.

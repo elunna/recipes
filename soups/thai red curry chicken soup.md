@@ -4,27 +4,27 @@ Yield:
 Prep time:
 
 ## Ingredients
-- 2 tablespoons coconut oil
+- 2 tbsp coconut oil
 - 4 cloves garlic, minced
-- 4 ounces Thai red curry paste
+- 4 oz Thai red curry paste
 - One 2-inch piece fresh ginger, peeled and grated
 - 1 medium yellow onion – thinly sliced
 - 2 medium red peppers, stems, seeds and membranes removed, thinly sliced
-- 3 cups chicken stock
-- 3 cups coconut milk (from the refrigerated milk area)
-- 5 ounces lite culinary coconut milk
-- 3 tablespoons fish sauce
-- 2 tablespoon lemon grass paste (found in the produce department near the herbs)
-- 1 teaspoon salt
-- 1 teaspoon pepper
-- 2 tablespoons raw sugar
-- 2 pounds boneless skinless chicken breast, thinly sliced (or substitute shredded roaster chicken)
-- 1 tablespoon fresh lime juice (use ½ of a lime)
-- 6-8 ounces dried thin rice or Somen noodles (use rice noodles for gluten-free!)
+- 3 cup chicken stock
+- 3 cup coconut milk (from the refrigerated milk area)
+- 5 oz lite culinary coconut milk
+- 3 tbsp fish sauce
+- 2 tbsp lemon grass paste (found in the produce department near the herbs)
+- 1 tsp salt
+- 1 tsp pepper
+- 2 tbsp raw sugar
+- 2 lb boneless skinless chicken breast, thinly sliced (or substitute shredded roaster chicken)
+- 1 tbsp fresh lime juice (use 1/2 of a lime)
+- 6-8 oz dried thin rice or Somen noodles (use rice noodles for gluten-free!)
 
 ### Optional Garnishes for Serving:
 1 bunch of green onions, thinly sliced
-½ cup cilantro leaves removed from stems or ½ cup torn Thai basil leaves
+1/2 cup cilantro leaves removed from stems or 1/2 cup torn Thai basil leaves
 Bean sprouts
 Thinly sliced red or green hot peppers
 Lime wedges

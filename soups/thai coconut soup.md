@@ -3,21 +3,21 @@
 Yield: 
 
 ## Ingredients
-- 2 quarts chicken or vegetable broth (see page 177)
+- 2 qt chicken or vegetable broth (see page 177)
 - 1 stalk lemongrass, cut into 2-inch pieces
 - 1 small ginger root, peeled and cut into 1-inch pieces
 - 1 shallot or 1 small red onion, diced
 - 1 jalapeno, seeded and halved
 - 3 limes, halved + 1 lime, zested, halved, and juiced
-- 1 pound chicken thighs (boneless), cut into 1-inch cubes
-- 1 14.5-ounce can coconut milk
-- 3 cups mushrooms, quartered
+- 1 lb chicken thighs (boneless), cut into 1-inch cubes
+- 1 14.5-oz can coconut milk
+- 3 cup mushrooms, quartered
 - 1 red bell pepper, diced
 - 1 parsnip, cut into 1/4-inch coins
 - 1 carrot, cut into 1/4-inch coins
-- 1 teaspoon salt
+- 1 tsp salt
 - 1 green onion, finely chopped
-- 1 tablespoon finely chopped fresh cilantro
+- 1 tbsp finely chopped fresh cilantro
 
 ## Instructions
 1. IN a large pot, bring the broth, lemongrass, ginger, shallot,

@@ -4,19 +4,19 @@ Yield: 6 servings
 Prep time: 30 min
 
 ## Ingredients
-- 2 tablespoons olive oil
+- 2 tbsp olive oil
 - 4 corn tortillas cut into thin strips
 - 1 onion diced
 - 4 garlic cloves minced
 - 1 red bell pepper diced
 - 2 jalapeno peppers minced
-- 1 pound boneless skinless chicken thighs or breasts
-- 4 cups chicken stock
-- ½ cup uncooked white rice
-- 1 can (14.5 ounces) black beans, drained
-- 1 can (14.5 ounces) fire roasted diced tomatoes, drained
-- 2 teaspoons chili powder
-- 1 teaspoon dried oregano
+- 1 lb boneless skinless chicken thighs or breasts
+- 4 cup chicken stock
+- 1/2 cup uncooked white rice
+- 1 can (14.5 oz) black beans, drained
+- 1 can (14.5 oz) fire roasted diced tomatoes, drained
+- 2 tsp chili powder
+- 1 tsp dried oregano
 - 2 limes juiced
 - For garnish optional: shredded Monterrey jack cheese, cilantro, sour cream, avocado
 

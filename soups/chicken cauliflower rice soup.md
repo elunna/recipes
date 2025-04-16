@@ -4,17 +4,17 @@ Yield: 6 servings
 Prep time: 30 min
 
 ## Ingredients
-- 2 tablespoons Ghee or olive oil
+- 2 tbsp Ghee or olive oil
 - 1 small Onion chopped
 - 2 Carrots peeled and diced
 - 2 stalks Celery diced
 - Salt and Pepper
-- 1 teaspoon Fresh Thyme
-- 4 cups Chicken Stock or broth
+- 1 tsp Fresh Thyme
+- 4 cup Chicken Stock or broth
 - 1 Bay Leaf
 - 1 Boneless Skinless Chicken Breast
-- 2 cups Cauliflower Rice
-- 2 cups Canned Coconut Milk full fat
+- 2 cup Cauliflower Rice
+- 2 cup Canned Coconut Milk full fat
 - 1/4 cup Fresh Flat-Leaf Parsley
 
 ## Instructions
@@ -27,6 +27,6 @@ Prep time: 30 min
 
 Chicken cauliflower rice soup is a comforting soup that is perfect for rainy spring days. Plus, it’s Whole30 compliant!
 
-If you aren’t concerned with keeping the recipe paleo, you can also go the more traditional route of stirring a tablespoon of flour into the vegetables before adding the broth and swapping the coconut milk out for dairy milk.
+If you aren’t concerned with keeping the recipe paleo, you can also go the more traditional route of stirring a tbsp of flour into the vegetables before adding the broth and swapping the coconut milk out for dairy milk.
 
 https://www.healthy-delicious.com/chicken-cauliflower-rice-soup-whole-30/
