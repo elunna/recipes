@@ -3,10 +3,10 @@
 Yield: 
 
 ## Ingredients
-1/2 lemon, juiced
-1/2 lime, juiced
-1 tsp fresh ginger, zested
-12 oz sparkling water
+- 1/2 lemon, juiced
+- 1/2 lime, juiced
+- 1 tsp fresh ginger, zested
+- 12 oz sparkling water
 
 ## Instructions
 1. SQUEEZE the lemon and lime into a glass and
@@ -14,7 +14,6 @@ add ginger zest.
 2.  Top with ice and the sparkling
 water. 
 3. Give it a quick stir before serving.
-
 
 ## Notes
 

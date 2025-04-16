@@ -4,21 +4,21 @@ Yield: 6 servings
 Prep time: 30 min
 
 ## Ingredients
-2 tablespoons olive oil
-4 corn tortillas cut into thin strips
-1 onion diced
-4 garlic cloves minced
-1 red bell pepper diced
-2 jalapeno peppers minced
-1 pound boneless skinless chicken thighs or breasts
-4 cups chicken stock
-½ cup uncooked white rice
-1 can (14.5 ounces) black beans, drained
-1 can (14.5 ounces) fire roasted diced tomatoes, drained
-2 teaspoons chili powder
-1 teaspoon dried oregano
-2 limes juiced
-For garnish optional: shredded Monterrey jack cheese, cilantro, sour cream, avocado
+- 2 tablespoons olive oil
+- 4 corn tortillas cut into thin strips
+- 1 onion diced
+- 4 garlic cloves minced
+- 1 red bell pepper diced
+- 2 jalapeno peppers minced
+- 1 pound boneless skinless chicken thighs or breasts
+- 4 cups chicken stock
+- ½ cup uncooked white rice
+- 1 can (14.5 ounces) black beans, drained
+- 1 can (14.5 ounces) fire roasted diced tomatoes, drained
+- 2 teaspoons chili powder
+- 1 teaspoon dried oregano
+- 2 limes juiced
+- For garnish optional: shredded Monterrey jack cheese, cilantro, sour cream, avocado
 
 ## Instructions
 1. Heat the oil using the saute function of your instant pot. When the oil is hot, add half of the tortilla strips. Cook 4-5 minutes, or until golden brown. Use a slotted spoon to transfer the tortillas to a paper towel. Sprinkle generously with coarse salt.

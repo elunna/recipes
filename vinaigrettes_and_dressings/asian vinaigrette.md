@@ -3,13 +3,13 @@
 Yield: 
 
 ## Ingredients
-1/4 cup rice vinegar
-1 tbsp sesame oil
-1 clove garlic, minced
-1/2 tsp minced fresh ginger
-3/4 cup extra-virgin olive oil
-Red pepper flakes
-Salt and black pepper
+- 1/4 cup rice vinegar
+- 1 tbsp sesame oil
+- 1 clove garlic, minced
+- 1/2 tsp minced fresh ginger
+- 3/4 cup extra-virgin olive oil
+- Red pepper flakes
+- Salt and black pepper
 
 ## Instructions
 1. MIX together the rice vinegar, sesame oil, gar-

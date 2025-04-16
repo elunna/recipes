@@ -11,29 +11,28 @@ Image:
 Description: This timeless chicken Caesar salad features a zesty dressing made with Greek-style yogurt. Our dressing calls for anchovy paste, which adds that signature savory flavor Caesar salad is known for. Any leftover anchovy paste can be used to enhance vinaigrettes, dips or sauces. You can use whole anchovies, if you prefer, but you’ll need to blend them or mash them with the flat side of a large chef’s knife before adding them to the dressing.
 
 ## Ingredients
-
-For chicken:
-8 oz chicken tenders
-1 tsp Dijon mustard
-1 tbsp garlic, minced
-1 tbsp extra-virgin olive oil
-pepper
+- For chicken:
+- 8 oz chicken tenders
+- 1 tsp Dijon mustard
+- 1 tbsp garlic, minced
+- 1 tbsp extra-virgin olive oil
+- pepper
 
 For salad:
-1/2 cup Greek yogurt
-2 tbsp grated Parmesan cheese
-4 cup chopped romaine lettuce hearts
-1/2 cup Caesar-seasoned croutons
-pepper
+- 1/2 cup Greek yogurt
+- 2 tbsp grated Parmesan cheese
+- 4 cup chopped romaine lettuce hearts
+- 1/2 cup Caesar-seasoned croutons
+- pepper
 
 For dressing:
-1/2 tsp Dijon mustard
-3 tbsp extra-virgin olive oil
-3 tbsp grated Parmesan cheese
-1 tsp lower-sodium Worcestershire sauce
-1/2 tsp anchovy paste
-1/4 tsp lemon juice
-1 tsp garlic, minced
+- 1/2 tsp Dijon mustard
+- 3 tbsp extra-virgin olive oil
+- 3 tbsp grated Parmesan cheese
+- 1 tsp lower-sodium Worcestershire sauce
+- 1/2 tsp anchovy paste
+- 1/4 tsp lemon juice
+- 1 tsp garlic, minced
 
 ## Instructions
 Chicken:

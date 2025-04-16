@@ -4,13 +4,13 @@ Yield: 2 servings
 Prep time: 15 min
 
 ## Ingredients
-1 head kale, stemmed, leaves cut into 1-inch ribbons
-3 tbsp cooking fat
-1 tbsp garlic, minced
-1/4 cup raw sliced almonds
-1/2 tsp salt
-1/2 tsp black pepper
-grated zest and juice of 1/2 lemon
+- 1 head kale, stemmed, leaves cut into 1-inch ribbons
+- 3 tbsp cooking fat
+- 1 tbsp garlic, minced
+- 1/4 cup raw sliced almonds
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- grated zest and juice of 1/2 lemon
 
 ## Instructions
 1. Bring 1 cup of water to boil in a large pot. Place a colander or steamer inside the pot. Add the kale, cover, and steam until the kale is tender but not soft, 3-5 min. Remove the colander or steamer from the pot and transfer to a dish towel to catch any dripping water.

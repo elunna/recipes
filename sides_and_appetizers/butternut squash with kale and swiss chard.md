@@ -3,16 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-2 cup large-diced seeded peeled butternut squash
-1 tbsp extra-virgin olive oil
-1 bunch kale, stemmed, leaves cut into 1-inch ribbons
-1 bunch Swiss chard, stemmed, leaves cut into 1-inch ribbons
-3 tbsp clarified butter, ghee, or coconut oil
-1 tbsp garlic, minced
-1/4 cup raw sliced almonds
-1/2 tsp chili powder
-1/2 tsp salt
-1/2 tsp black pepper
+- 2 cup large-diced seeded peeled butternut squash
+- 1 tbsp extra-virgin olive oil
+- 1 bunch kale, stemmed, leaves cut into 1-inch ribbons
+- 1 bunch Swiss chard, stemmed, leaves cut into 1-inch ribbons
+- 3 tbsp clarified butter, ghee, or coconut oil
+- 1 tbsp garlic, minced
+- 1/4 cup raw sliced almonds
+- 1/2 tsp chili powder
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. Preheat oven to 425F.

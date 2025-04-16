@@ -4,17 +4,17 @@ Yield:
 
 ## Ingredients
 ### BRINE AND TURKEY
-8- to 10-lb turkey
-5 qt hot tap water
-1 cup salt
-2 cup apple juice
-1 tbsp black peppercorns
-2 bay leaves, torn in half
-1 orange, quartered
-2 lemons, quartered
-3 sprigs fresh thyme
-3 sprigs fresh rosemary
-3 qt ice
+- 8- to 10-lb turkey
+- 5 qt hot tap water
+- 1 cup salt
+- 2 cup apple juice
+- 1 tbsp black peppercorns
+- 2 bay leaves, torn in half
+- 1 orange, quartered
+- 2 lemons, quartered
+- 3 sprigs fresh thyme
+- 3 sprigs fresh rosemary
+- 3 qt ice
 
 ### LEMON BROTH AND TURKEY FIXINGS
 3 cup chicken broth

@@ -3,15 +3,15 @@
 Yield: 2 1/2 cup
 
 ## Ingredients
-1/4 cup red wine vinegar
-1/4 cup lime juice
-2 cloves garlic, minced
-1/2 shallot, minced
-1 1/2 cup extra-virgin olive oil
-1/4 cup fresh cilantro
-1/4 cup fresh parsley leaves
-1/2 tsp salt
-1/2 tsp black pepper
+- 1/4 cup red wine vinegar
+- 1/4 cup lime juice
+- 2 cloves garlic, minced
+- 1/2 shallot, minced
+- 1 1/2 cup extra-virgin olive oil
+- 1/4 cup fresh cilantro
+- 1/4 cup fresh parsley leaves
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. COMBINE the vinegar, lime juice, garlic, and shallot in a

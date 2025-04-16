@@ -3,14 +3,14 @@
 Yield: 
 
 ## Ingredients
-6 tomatoes, cored, seeded, and diced
-1/2 cup chopped fresh cilantro.
-1/2 onion, finely diced
-3 cloves garlic, minced
-1 jalapeno, finely diced
-1/2 tsp salt
-1/4 tsp black pepper
-Grated zest and juice of 1/2 lime
+- 6 tomatoes, cored, seeded, and diced
+- 1/2 cup chopped fresh cilantro
+- 1/2 onion, finely diced
+- 3 cloves garlic, minced
+- 1 jalapeno, finely diced
+- 1/2 tsp salt
+- 1/4 tsp black pepper
+- Grated zest and juice of 1/2 lime
 
 ## Instructions
 1. MIX all the ingredients together in a small bowl and stir

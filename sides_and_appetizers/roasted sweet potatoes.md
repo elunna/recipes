@@ -3,11 +3,10 @@
 Yield: 
 
 ## Ingredients
-2 medium sweet potatoes
-2 tbsp extra-virgin olive oil
-2 tbsp clarified butter, ghee,
-or coconut butter
-Salt and black pepper
+- 2 medium sweet potatoes
+- 2 tbsp extra-virgin olive oil
+- 2 tbsp clarified butter, ghee, or coconut butter
+- Salt and black pepper
 
 ## Instructions
 1. PREHEAT the oven to 375°F.

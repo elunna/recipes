@@ -3,16 +3,16 @@
 Yield: 
 
 ## Ingredients
-4 medium beets
-3/4 cup plus 2 tbsp extra-virgin olive oil
-1/4 cup grapefruit juice
-2 cloves garlic, minced
-2 tsp mustard powder
-2 tsp fresh thyme
-1 tsp salt
-1/2 tsp black pepper
-1 package (about 5 oz) arugula
-1/4 cup slivered or sliced almonds
+- 4 medium beets
+- 3/4 cup plus 2 tbsp extra-virgin olive oil
+- 1/4 cup grapefruit juice
+- 2 cloves garlic, minced
+- 2 tsp mustard powder
+- 2 tsp fresh thyme
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 1 package (about 5 oz) arugula
+- 1/4 cup slivered or sliced almonds
 
 ## Instructions
 1. PREHEAT the oven to 425°F.

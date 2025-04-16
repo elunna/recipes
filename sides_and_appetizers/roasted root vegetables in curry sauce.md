@@ -3,13 +3,13 @@
 Yield: 
 
 ## Ingredients
-1 cup peeled diced potato (any variety)
-1 cup peeled diced rutabaga
-1 cup peeled diced turnips
-1 cup peeled diced parsnips
-1 cup peeled diced carrots
-1/4 cup cooking fat
-1/2 cup Curry Sauce (page 307)
+- 1 cup peeled diced potato (any variety)
+- 1 cup peeled diced rutabaga
+- 1 cup peeled diced turnips
+- 1 cup peeled diced parsnips
+- 1 cup peeled diced carrots
+- 1/4 cup cooking fat
+- 1/2 cup Curry Sauce (page 307)
 
 ## Instructions
 1. PREHEAT the oven to 400°F. Line 2 baking sheets with

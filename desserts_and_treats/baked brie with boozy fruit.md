@@ -4,22 +4,22 @@ Yield: 8 servings
 Prep time: 25 min
 
 ## Ingredients
-1/2 cup pecans
-1 package (14 to 16 oz) all-butter puff pastry, thawed
-Unbleached all-purpose flour, for dusting
-2 tbsp Dijon mustard
-1 round wheel (about 6 inches) Brie (1 lb)
-Boozy Fruit, for serving
-Apple wedges and baguette slices, for serving
+- 1/2 cup pecans
+- 1 package (14 to 16 oz) all-butter puff pastry, thawed
+- Unbleached all-purpose flour, for dusting
+- 2 tbsp Dijon mustard
+- 1 round wheel (about 6 inches) Brie (1 lb)
+- Boozy Fruit, for serving
+- Apple wedges and baguette slices, for serving
 
 Boozy Fruit:
-1/2 cup dried Calimyrna figs, coarsely chopped
-1/2 cup dried tart California apricots, coarsely chopped
-1/2 cup dried pears, coarsely chopped
-1/4 cup raisins
-2 cup port wine
-1 cinnamon stick
-Large pinch of kosher salt
+- 1/2 cup dried Calimyrna figs, coarsely chopped
+- 1/2 cup dried tart California apricots, coarsely chopped
+- 1/2 cup dried pears, coarsely chopped
+- 1/4 cup raisins
+- 2 cup port wine
+- 1 cinnamon stick
+- Large pinch of kosher salt
 
 ## Instructions
 For boozy fruit: Combine all ingredients in a small saucepan. Bring to a boil; cook, stirring occasionally, until port just starts to turn syrupy, 8 to 10 minutes. (Sauce will continue to thicken as it cools.) Let cool completely. Remove cinnamon stick and serve, or store, covered, in refrigerator up to 1 week.

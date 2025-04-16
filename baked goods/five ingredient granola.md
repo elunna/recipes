@@ -1,31 +1,25 @@
 # Recipe Title
 ---
 Yield:
-Category:
-Prep time:
-Rating:
-Source:
-URL:
-Image: 
 
 ## Ingredients
-2 cup rolled oats
-3⁄4 cup natural peanut butter, room temperature
-1⁄4 cup maple syrup
+- 2 cup rolled oats
+- 3⁄4 cup natural peanut butter, room temperature
+- 1⁄4 cup maple syrup
 
 3 different versions:
 
-    Very Berry 
-        1⁄2 cup mixed dried berries
-        3⁄4 cup almonds
+Very Berry 
+- 1⁄2 cup mixed dried berries
+- 3⁄4 cup almonds
 
-    Chocolate Hazelnut
-        1⁄2 cup chocolate chips
-        3⁄4 cup toasted hazelnuts
+Chocolate Hazelnut
+- 1⁄2 cup chocolate chips
+- 3⁄4 cup toasted hazelnuts
 
-    Apple Walnut
-        1⁄2 cup dried apple
-        3⁄4 cup walnuts, roughly chopped
+Apple Walnut
+- 1⁄2 cup dried apple
+- 3⁄4 cup walnuts, roughly chopped
 
 ## Instructions
 1. Preheat oven to 325 

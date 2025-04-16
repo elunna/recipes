@@ -4,20 +4,20 @@ Yield: 4 portions
 Prep time: 45 min
 
 ## Ingredients
-2 dl mayonnaise
-1 tbsp sesame
-salt
-pepper
-400g cabbage
-the juice of 1lime
-1 tbsp oil
-2 tbsp sweet chilis sauce
-250g mushrooms
-2 tbsp oil
-500g pork
-2 garlic cloves
-2 tbsp Japanese soy
-6 pita bread or libab red (6 pita corresponds to 4 liba)
+- 2 dl mayonnaise
+- 1 tbsp sesame
+- salt
+- pepper
+- 400g cabbage
+- the juice of 1 lime
+- 1 tbsp oil
+- 2 tbsp sweet chilis sauce
+- 250g mushrooms
+- 2 tbsp oil
+- 500g pork
+- 2 garlic cloves
+- 2 tbsp Japanese soy
+- 6 pita bread or libab red (6 pita corresponds to 4 liba)
 
 ## Instructions
 

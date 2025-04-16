@@ -4,18 +4,18 @@ Yield: 4 servings
 Prep time: 45 min
 
 ## Ingredients
-2 dl wheat flour
-4 dl milk
-2 egg
-2 tbsp salt
-pepper
-900g solid potato, finely shredded
-about 375g sliced salted pork or steak pork (or 950g)
-2 tbsp cooking fat
-3 carrots. finely shredded
+- 2 dl wheat flour
+- 4 dl milk
+- 2 egg
+- 2 tbsp salt
+- pepper
+- 900g solid potato, finely shredded
+- about 375g sliced salted pork or steak pork (or 950g)
+- 2 tbsp cooking fat
+- 3 carrots. finely shredded
 
 For serving
-lingonberries and/or strawberries, mixed with a little honey
+- lingonberries and/or strawberries, mixed with a little honey
 
 ## Instructions
 

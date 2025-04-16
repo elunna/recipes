@@ -3,15 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-1 head cauliflower, cut into florets
-(about 4 cup)
-2 cloves garlic, minced
-1/2 cup coconut cream (see page 178)
-2 tbsp ghee or clarified butter
-1 tsp salt
-1/4 tsp black pepper
-1/2 cup chicken broth
-1 tbsp minced fresh parsley
+- 1 head cauliflower, cut into florets (about 4 cup)
+- 2 cloves garlic, minced
+- 1/2 cup coconut cream (see page 178)
+- 2 tbsp ghee or clarified butter
+- 1 tsp salt
+- 1/4 tsp black pepper
+- 1/2 cup chicken broth
+- 1 tbsp minced fresh parsley
 
 ## Instructions
 1. BRING 2 cup of water to a boil ina large pot over

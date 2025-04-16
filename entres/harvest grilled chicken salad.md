@@ -3,23 +3,18 @@
 Yield: 2 servings
 
 ## Ingredients
-1/2 tsp salt
-1/2 tsp black pepper
-1/2 tsp ground cumin
-1/2 tsp chili powder
-1/2 tsp garlic powder
-1/2 tsp onion powder
-1 lb boneless, skinless chicken
-breasts
-4 cup lettuce leaves (torn into
-l-inch pieces)
-1/2 Granny Smith apple, cored and
-sliced or diced
-1/2 cucumber, sliced or diced
-1/4 cup dried cranberries (sweetened
-with apple juice)
-Raspberry Walnut Vinaigrette
-(page 328)
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 1/2 tsp ground cumin
+- 1/2 tsp chili powder
+- 1/2 tsp garlic powder
+- 1/2 tsp onion powder
+- 1 lb boneless, skinless chicken breasts
+- 4 cup lettuce leaves (torn into l-inch pieces)
+- 1/2 Granny Smith apple, cored and sliced or diced
+- 1/2 cucumber, sliced or diced
+- 1/4 cup dried cranberries (sweetened with apple juice)
+- Raspberry Walnut Vinaigrette (page 328)
 
 ## Instructions
 1. REHEAT a grill to medium-high heat (875° to 450°F).

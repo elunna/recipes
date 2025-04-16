@@ -4,10 +4,10 @@ Yield:
 Prep time:
 
 ## Ingredients
-1 cabbage
-3 tbsp capers
-1/2 lemon, juiced
-1 tbsp parsley, chopped
+- 1 cabbage
+- 3 tbsp capers
+- 1/2 lemon, juiced
+- 1 tbsp parsley, chopped
 
 ## Instructions
 1. Peel and clean the cabbage. Slice right down the middle through the root.

@@ -3,17 +3,17 @@
 Yield: 
 
 ## Ingredients
-1 clove garlic, minced
-Juice of 1 lemon
-1/4 cup extra-virgin olive oil
-1 medium head green cabbage,
-finely shredded
-1 cup shredded carrots
-2 tbsp chopped cashews
-1 tsp sesame seeds
-1/2 tsp salt
-1/2 tsp black pepper
-1 tbsp ribbon-chopped fresh basil
+- 1 clove garlic, minced
+- Juice of 1 lemon
+- 1/4 cup extra-virgin olive oil
+- 1 medium head green cabbage,
+- finely shredded
+- 1 cup shredded carrots
+- 2 tbsp chopped cashews
+- 1 tsp sesame seeds
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 1 tbsp ribbon-chopped fresh basil
 
 ## Instructions
 1. WHISK the garlic and lemon juice in a mixing bowl. While

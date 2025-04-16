@@ -3,16 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-1 lb ground chicken thigh
-1 large egg, beaten
-1/4 onion, finely chopped
-2 cloves garlic, minced
-2 tsp minced fresh oregano,
-(or 1 tsp dried oregano)
-1 tsp salt
-1/2 tsp black pepper
-2 tbsp cooking fat, plus
-more if needed
+- 1 lb ground chicken thigh
+- 1 large egg, beaten
+- 1/4 onion, finely chopped
+- 2 cloves garlic, minced
+- 2 tsp minced fresh oregano (or 1 tsp dried oregano)
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 2 tbsp cooking fat, plus more if needed
 
 ## Instructions
 1. PREHEAT the oven to 350°F. Line a baking sheet with

@@ -3,23 +3,19 @@
 Yield: 
 
 ## Ingredients
-2 medium sweet potatoes, peeled and
-large-diced
-4 cup cold water
-4 tbsp clarified butter or ghee
-1/2 cup coconut milk
-1 onion, finely chopped
-2 stalks celery, finely chopped
-1 carrot, peeled and finely chopped
-1 lb ground meat (beef, lamb, bison)
-2 cloves garlic, minced
-1 tsp salt
-1/2 tsp black pepper
-1 sprig fresh thyme leaves (or
-1/4 tsp dried thyme)
-2 tsp fresh oregano leaves
-(or 1/2 tsp dried)
-
+- 2 medium sweet potatoes, peeled and large-diced
+- 4 cup cold water
+- 4 tbsp clarified butter or ghee
+- 1/2 cup coconut milk
+- 1 onion, finely chopped
+- 2 stalks celery, finely chopped
+- 1 carrot, peeled and finely chopped
+- 1 lb ground meat (beef, lamb, bison)
+- 2 cloves garlic, minced
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 1 sprig fresh thyme leaves (or 1/4 tsp dried thyme)
+- 2 tsp fresh oregano leaves (or 1/2 tsp dried)
 
 ## Instructions
 1. PREHEAT the oven to 375°F.

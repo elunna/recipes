@@ -1,12 +1,6 @@
 # Peanut Butter Banana Smoothie
 ---
 Yield: 1 serving (13 oz) smoothie 
-Category:
-Prep time:
-Rating:
-Source:
-URL:
-Image: 
 
 ## Ingredients
 - 1 cup whole milk
@@ -16,12 +10,10 @@ Image:
 - A few dashes cinnamon
 - 2 ice cubes
 
-
 ## Instructions
 1. Blend all ingredients together.
 
 ## Notes
-
 442	Calories
 24g	Fat
 46g	Carbs

@@ -4,11 +4,10 @@ Yield: 4 servings
 Prep time: 15 min
 
 ## Ingredients
-
-1 lb green beans, stem ends removed
-1 garlic clove, smashed and peeled
-1 tbsp butter, cut up
-Coarse salt
+- 1 lb green beans, stem ends removed
+- 1 garlic clove, smashed and peeled
+- 1 tbsp butter, cut up
+- Coarse salt
 
 ## Instructions
 1. Place beans, garlic, butter, and cup water in a 2- to 2 1/2-qt shallow microwave-safe dish with a lid; season with salt.

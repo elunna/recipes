@@ -4,20 +4,20 @@ Yield: 4 servings
 Prep time: 10 min
 
 ## Ingredients
-1 Tablespoon olive oil
-1 yellow onion diced
-4 – 5 garlic cloves minced
-8 ounces fresh white or cremini mushrooms
-2 carrots cut into 1.5-inch pieces
-½ teaspoon dried thyme
-¼ teaspoon dried crushed rosemary
-¼ teaspoon red pepper flakes
-2 Tablespoons cornstarch
-1 cup full fat coconut milk canned
-3 cups vegetable broth
-½ cup cooked quinoa
-1 teaspoon lemon juice
-Fresh parsley for garnish if desired
+- 1 Tablespoon olive oil
+- 1 yellow onion diced
+- 4 – 5 garlic cloves minced
+- 8 ounces fresh white or cremini mushrooms
+- 2 carrots cut into 1.5-inch pieces
+- ½ teaspoon dried thyme
+- ¼ teaspoon dried crushed rosemary
+- ¼ teaspoon red pepper flakes
+- 2 Tablespoons cornstarch
+- 1 cup full fat coconut milk canned
+- 3 cups vegetable broth
+- ½ cup cooked quinoa
+- 1 teaspoon lemon juice
+- Fresh parsley for garnish if desired
 
 ## Instructions
 1. Heat the oil in a saucepan over medium heat; add onion, garlic, and pinch of salt. Cook until they being to soften, 3-5 minutes.

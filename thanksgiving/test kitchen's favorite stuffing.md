@@ -4,17 +4,17 @@ Yield: 8-12 servings
 Prep time: 20 min
 
 ## Ingredients
-1 loaf sliced country white bread (about 16 slices), cut into 1-inch pieces (14 cup)
-6 tbsp unsalted butter, plus more, softened, for brushing
-2 medium onions, chopped (3 cup)
-3 celery stalks, sliced crosswise into 1/4-inch pieces (1 1/2 cup)
-Kosher salt and freshly ground pepper
-2 cloves garlic, minced (1 tbsp)
-12 fresh sage leaves, finely chopped (2 tbsp)
-1/3 cup dry white wine, such as Sauvignon Blanc
-3/4 cup chopped fresh flat-leaf parsley, plus more for serving
-1 1/2 cup Simple Giblet Stock, or store-bought no-sodium-added chicken stock
-3 large eggs, lightly beaten
+- 1 loaf sliced country white bread (about 16 slices), cut into 1-inch pieces (14 cup)
+- 6 tbsp unsalted butter, plus more, softened, for brushing
+- 2 medium onions, chopped (3 cup)
+- 3 celery stalks, sliced crosswise into 1/4-inch pieces (1 1/2 cup)
+- Kosher salt and freshly ground pepper
+- 2 cloves garlic, minced (1 tbsp)
+- 12 fresh sage leaves, finely chopped (2 tbsp)
+- 1/3 cup dry white wine, such as Sauvignon Blanc
+- 3/4 cup chopped fresh flat-leaf parsley, plus more for serving
+- 1 1/2 cup Simple Giblet Stock, or store-bought no-sodium-added chicken stock
+- 3 large eggs, lightly beaten
 
 ## Instructions
 1. Preheat oven to 300 degrees. Divide bread between 2 rimmed baking sheets and spread in a single layer. Bake, stirring a few times, until crisp and dry, about 40 minutes. Let cool. Break a piece open to make sure it's dried all the way through; if not, bake a few more minutes. Transfer to a large bowl.

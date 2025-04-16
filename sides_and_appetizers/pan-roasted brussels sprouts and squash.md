@@ -3,16 +3,14 @@
 Yield: 
 
 ## Ingredients
-3 tbsp extra-virgin olive oil
-1/2 lb Brussels sprouts, trimmed
-and cut in half
-1/2 red onion, cut into 1-inch pieces
-1 tsp dried sage
-1/2 tsp nutmeg
-1/2 tsp black pepper
-1/4 tsp salt
-3 cup diced peeled butternut squash
-
+- 3 tbsp extra-virgin olive oil
+- 1/2 lb Brussels sprouts, trimmed and cut in half
+- 1/2 red onion, cut into 1-inch pieces
+- 1 tsp dried sage
+- 1/2 tsp nutmeg
+- 1/2 tsp black pepper
+- 1/4 tsp salt
+- 3 cup diced peeled butternut squash
 
 ## Instructions
 1. HEAT the olive oil in a large skillet over medium heat and

@@ -4,17 +4,17 @@ Yield: 2 dozen 3-inch cookies
 Prep time:
 
 ## Ingredients
-1 1/2 cup all-purpose flour
-1 tsp baking soda
-1 cup (2 sticks) unsalted butter, room temperature
-3/4 cup granulated sugar
-3/4 cup light-brown sugar
-1 egg
-1 tsp pure vanilla extract
-1 1/2 cup oatmeal
-1 cup dried cherries
-1 cup bittersweet chocolate, coarsely chopped
-1 cup toffee pieces, (5 1/2 oz)
+- 1 1/2 cup all-purpose flour
+- 1 tsp baking soda
+- 1 cup (2 sticks) unsalted butter, room temperature
+- 3/4 cup granulated sugar
+- 3/4 cup light-brown sugar
+- 1 egg
+- 1 tsp pure vanilla extract
+- 1 1/2 cup oatmeal
+- 1 cup dried cherries
+- 1 cup bittersweet chocolate, coarsely chopped
+- 1 cup toffee pieces, (5 1/2 oz)
 
 ## Instructions
 1. Heat oven to 350 degrees. Sift together flour and baking soda, and set aside. In the bowl of an electric mixer fitted with the paddle attachment, cream butter and sugars on medium-high speed until light and fluffy, 2 to 3 minutes. Scrape down the sides of the bowl once or twice during mixing. Add egg, and mix on high speed to combine. Add vanilla extract; mix to combine. Scrape down the sides of the bowl.

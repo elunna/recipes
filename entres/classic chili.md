@@ -3,19 +3,18 @@
 Yield: 
 
 ## Ingredients
-
-1 lb ground meat (beef, lamb, bison)
-1 onion, finely chopped
-3 cloves garlic, minced
-1 tsp cumin
-1 tsp chili powder
-1/2 tsp paprika
-1/2 tsp mustard powder
-1/2 tsp salt
-1 red bell pepper, finely chopped
-1 green bell pepper, finely chopped
-1 can (14.5 oz) diced tomatoes
-2 cup beef broth
+- 1 lb ground meat (beef, lamb, bison)
+- 1 onion, finely chopped
+- 3 cloves garlic, minced
+- 1 tsp cumin
+- 1 tsp chili powder
+- 1/2 tsp paprika
+- 1/2 tsp mustard powder
+- 1/2 tsp salt
+- 1 red bell pepper, finely chopped
+- 1 green bell pepper, finely chopped
+- 1 can (14.5 oz) diced tomatoes
+- 2 cup beef broth
 
 ## Instructions
 1. HEAT a large pot or high-walled skillet over medium-high

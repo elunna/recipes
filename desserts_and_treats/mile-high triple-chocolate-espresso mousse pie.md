@@ -4,26 +4,26 @@ Yield: 10 to 12 Serves
 
 ## Ingredients
 ### Crust
-1 stick unsalted butter, melted, plus more for pan
-9 oz chocolate wafer cookies, such as Famous brand
-1/3 cup granulated sugar
-1/2 tsp kosher salt
+- 1 stick unsalted butter, melted, plus more for pan
+- 9 oz chocolate wafer cookies, such as Famous brand
+- 1/3 cup granulated sugar
+- 1/2 tsp kosher salt
 
 ### Mousses
-8 oz bittersweet chocolate, chopped (1 1/4 cup)
-8 oz milk chocolate, chopped (1 1/4 cup)
-6 large egg whites, plus 2 yolks, room temperature
-1 tsp pure vanilla paste or extract
-1/2 tsp cream of tartar
-1/4 cup granulated sugar
-1 1/4 cup heavy cream
-1/4 cup confectioners' sugar
+- 8 oz bittersweet chocolate, chopped (1 1/4 cup)
+- 8 oz milk chocolate, chopped (1 1/4 cup)
+- 6 large egg whites, plus 2 yolks, room temperature
+- 1 tsp pure vanilla paste or extract
+- 1/2 tsp cream of tartar
+- 1/4 cup granulated sugar
+- 1 1/4 cup heavy cream
+- 1/4 cup confectioners' sugar
 
 ### Espresso Cream
-1 1/4 cup heavy cream
-1 tbsp instant espresso powder
-1/4 cup confectioners' sugar
-Unsweetened cocoa powder, for dusting
+- 1 1/4 cup heavy cream
+- 1 tbsp instant espresso powder
+- 1/4 cup confectioners' sugar
+- Unsweetened cocoa powder, for dusting
 
 ## Instructions
 1. Crust: Preheat oven to 350°F. Brush the bottom and sides of a 9-inch-round, 3-inch-deep springform pan with butter. Pulse cookies and granulated sugar in a food processor until finely ground. Add butter and salt, pulsing until texture resembles that of wet sand. Press mixture evenly into bottom and halfway up sides of prepared pan. Bake until crust is set and dry to the touch, 12 to 15 minutes. Transfer pan to a wire rack; let cool completely. (Crust can be loosely wrapped and stored at room temperature up to 1 day.)

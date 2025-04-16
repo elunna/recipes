@@ -3,10 +3,9 @@
 Yield: 
 
 ## garlic aioli
-1 cup Basic Mayonnaise (page 179)
-2 cloves garlic, minced
-Juice of 1/2 lemon
-
+- 1 cup Basic Mayonnaise (page 179)
+- 2 cloves garlic, minced
+- Juice of 1/2 lemon
 
 To make the aioli even more flavorful, roast the
 garlic before adding it to the mayo (see the tip

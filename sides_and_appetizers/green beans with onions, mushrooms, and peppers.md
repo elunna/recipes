@@ -3,17 +3,14 @@
 Yield: 
 
 ## Ingredients
-2 cup ice
-2 tbsp plus 1/4 tsp salt
-1 lb green beans, ends trimmed
-3 tbsp clarified butter, ghee, or
-coconut oil
-1/2 cup thinly sliced white onion
-1/2 cup thinly sliced button, cremini, or
-portabella mushrooms
-1/2 red bell pepper, seeded, ribs removed,
-and sliced into strips
-1/4 tsp black pepper
+- 2 cup ice
+- 2 tbsp plus 1/4 tsp salt
+- 1 lb green beans, ends trimmed
+- 3 tbsp clarified butter, ghee, or coconut oil
+- 1/2 cup thinly sliced white onion
+- 1/2 cup thinly sliced button, cremini, or portabella mushrooms
+- 1/2 red bell pepper, seeded, ribs removed, and sliced into strips
+- 1/4 tsp black pepper
 
 ## Instructions
 1. CREATE an ice bath for “shocking” the green beans by filling

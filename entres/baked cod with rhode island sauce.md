@@ -4,17 +4,16 @@ Yield: 4 portions
 Prep time: 30 min
 
 ## Ingredients
-900g potatoes (preferably delicacy)
-2 cod/fish fillets (~360g)
-2 dl crème fraiche
-2 tbsp chili powder
-2 krm salt
-1 krm pepper
-1 cucumber
-1 tbsp oil (if the fish is fried in a frying pan)
+- 900g potatoes (preferably delicacy)
+- 2 cod/fish fillets (~360g)
+- 2 dl crème fraiche
+- 2 tbsp chili powder
+- 2 krm salt
+- 1 krm pepper
+- 1 cucumber
+- 1 tbsp oil (if the fish is fried in a frying pan)
 
 ## Instructions
-
 1. Cook the potatoes.
 2. Cook the fish according to the instructions on the package.
 3. Stir together crème fraiche, chili sauce, salt and pepper in a bowl.

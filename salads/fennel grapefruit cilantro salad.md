@@ -4,13 +4,12 @@ Yield: 4 servings
 Prep time: 15 mins
 
 ## Ingredients
-1 large grapefruit (or 2-3 oranges)
-1 small fennel bulb, cored and thinly sliced, plus fennel fronds for garnish
-1 medium Granny Smith apple, cored and thinly sliced
-1 tbsp toasted sunflower seeds
-1/2 cup cilantro, chopped
-
-Apple Cider Vinaigrette (or other)
+- 1 large grapefruit (or 2-3 oranges)
+- 1 small fennel bulb, cored and thinly sliced, plus fennel fronds for garnish
+- 1 medium Granny Smith apple, cored and thinly sliced
+- 1 tbsp toasted sunflower seeds
+- 1/2 cup cilantro, chopped
+- Apple Cider Vinaigrette (or other)
 
 ## Instructions
 1. Zest grapefruit into a large bowl until you have 1 tbsp zest.

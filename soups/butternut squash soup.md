@@ -3,16 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-3 tablespoons clarified butter, ghee,
-or coconut oil
-1/2 cup diced onion
-3 cups diced seeded peeled butternut
-squash
-2 cloves garlic, minced
-1/2 teaspoon ground ginger
-4 cups chicken broth
-1 teaspoon salt
-1/2 teaspoon black pepper
+- 3 tablespoons clarified butter, ghee, or coconut oil
+- 1/2 cup diced onion
+- 3 cups diced seeded peeled butternut squash
+- 2 cloves garlic, minced
+- 1/2 teaspoon ground ginger
+- 4 cups chicken broth
+- 1 teaspoon salt
+- 1/2 teaspoon black pepper
 
 ## Instructions
 1. IN a large pot, melt the cooking fat over medium heat,

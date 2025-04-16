@@ -3,16 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-1 1/2 tbsp salt
-1 tsp black pepper
-2 lb pork butt, cut into 4-inch cubes
-2 tbsp cooking fat
-1/2 medium onion, roughly chopped
-3 cloves garlic, minced
-1/2 tsp chili powder
-1/4 tsp ground cinnamon
-1/4 cup sliced (1/2-inch pieces) green onions
-Juice of 1/2 lime
+- 1 1/2 tbsp salt
+- 1 tsp black pepper
+- 2 lb pork butt, cut into 4-inch cubes
+- 2 tbsp cooking fat
+- 1/2 medium onion, roughly chopped
+- 3 cloves garlic, minced
+- 1/2 tsp chili powder
+- 1/4 tsp ground cinnamon
+- 1/4 cup sliced (1/2-inch pieces) green onions
+- Juice of 1/2 lime
 
 ## Instructions
 1. PREHEAT the oven to 350°F.

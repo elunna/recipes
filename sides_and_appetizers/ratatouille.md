@@ -3,20 +3,19 @@
 Yield: 
 
 ## Ingredients
-1/4 cup coconut oil or extra-virgin olive oil
-1/4 onion, finely chopped
-1 cup diced zucchini
-1 cup diced yellow squash
-1 cup diced eggplant
-1/2 tsp salt
-1/2 tsp black pepper
-1/2 cup finely diced green bell pepper
-1/2 cup finely diced red bell pepper
-2 cloves garlic, minced
-1 cup Tomato Sauce (page 324)
-1 tsp balsamic vinegar
-3 fresh basil leaves, roughly chopped
-(optional)
+- 1/4 cup coconut oil or extra-virgin olive oil
+- 1/4 onion, finely chopped
+- 1 cup diced zucchini
+- 1 cup diced yellow squash
+- 1 cup diced eggplant
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 1/2 cup finely diced green bell pepper
+- 1/2 cup finely diced red bell pepper
+- 2 cloves garlic, minced
+- 1 cup Tomato Sauce (page 324)
+- 1 tsp balsamic vinegar
+- 3 fresh basil leaves, roughly chopped (optional)
 
 ## Instructions
 1. IN a medium pot, heat the oil over medium heat, swirling

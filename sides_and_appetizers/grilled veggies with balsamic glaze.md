@@ -3,18 +3,16 @@
 Yield: 
 
 ## Ingredients
-1 cup balsamic vinegar
-1 bunch asparagus, ends trimmed, cut into
-l-inch pieces
-1 zucchini, cut into large dice
-1 yellow squash, cut into large dice
-1 sweet or yellow onion, cut into 1-inch slices
-2 bell peppers, seeded, ribs removed, and
-cut into 1-inch slices
-1/4 cup extra-virgin olive oil
-1/2 tsp salt
-1/2 tsp black pepper
-2 tbsp finely chopped fresh parsley
+- 1 cup balsamic vinegar
+- 1 bunch asparagus, ends trimmed, cut into 1-inch pieces
+- 1 zucchini, cut into large dice
+- 1 yellow squash, cut into large dice
+- 1 sweet or yellow onion, cut into 1-inch slices
+- 2 bell peppers, seeded, ribs removed, and cut into 1-inch slices
+- 1/4 cup extra-virgin olive oil
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 2 tbsp finely chopped fresh parsley
 
 ## Instructions
 1. TO make the balsamic glaze, bring the vinegar

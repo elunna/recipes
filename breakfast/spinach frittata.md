@@ -3,16 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-6 large eggs, beaten
-a tsp salt
-4 tsp black pepper
-2 tbsp cooking fat
-4 onion, diced
-1 cup diced seeded tomato (plus a few
-slices for topping the frittata)
-1 bag (about 9 oz) baby spinach,
-roughly chopped
-Grated zest and juice of 4 lemon
+- 6 large eggs, beaten
+- a tsp salt
+- 4 tsp black pepper
+- 2 tbsp cooking fat
+- 4 onion, diced
+- 1 cup diced seeded tomato (plus a few
+- slices for topping the frittata)
+- 1 bag (about 9 oz) baby spinach,
+- roughly chopped
+- Grated zest and juice of 4 lemon
 
 ## Instructions
 1. SET the oven to broil (or preheat to 500°F).

@@ -3,17 +3,14 @@
 Yield: 1 cup
 
 ## Ingredients
-
-1/2 cup unsweetened sunflower
-seed butter
-1/2 cup coconut milk
-Juice of 1 lime
-1 tbsp coconut aminos (optional)
-1 clove garlic, minced
-1/2 tsp crushed red pepper flakes
-1/2 tsp rice vinegar or apple
-cider vinegar
-
+- 1/2 cup unsweetened sunflower seed butter (or almond butter)
+- 1/2 cup coconut milk
+- Juice of 1 lime
+- 1 tbsp coconut aminos (optional)
+- 1 clove garlic, minced
+- 1/2 tsp crushed red pepper flakes
+- 1/2 tsp rice vinegar or apple
+- cider vinegar
 
 ## Instructions
 1. MIX all the ingredients together in a small bowl and stir to

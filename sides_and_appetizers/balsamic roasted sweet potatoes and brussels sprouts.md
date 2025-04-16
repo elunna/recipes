@@ -3,18 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-1 cup alsamic vinegar
-1 sweet potato, peeled and cut into
-large dice
-3 tbsp melted ghee, clarified
-butter, coconut oil, or extra-virgin
-olive oil
-1/2 lb Brussels sprouts, trimmed
-and cut in half
-1/2 red onion, thinly sliced
-3 cloves garlic, minced
-1/2 tsp salt
-1/4 tsp black pepper
+- 1 cup alsamic vinegar
+- 1 sweet potato, peeled and cut into large dice
+- 3 tbsp melted ghee, clarified butter, coconut oil, or extra-virgin olive oil
+- 1/2 lb Brussels sprouts, trimmed and cut in half
+- 1/2 red onion, thinly sliced
+- 3 cloves garlic, minced
+- 1/2 tsp salt
+- 1/4 tsp black pepper
 
 ## Instructions
 1. PREHEAT the oven to 400°F. Line a baking sheet with

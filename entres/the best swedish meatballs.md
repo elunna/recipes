@@ -4,27 +4,27 @@ Yield: 6 servings
 
 ## Ingredients
 ### Meatballs
-1 lb ground beef
-1/4 cup panko bread crumbs
-1 tbsp parsley, chopped
-1/4 tsp ground allspice
-1/4 tsp ground nutmeg
-1/4 cup onion, finely chopped
-1/2 tsp garlic powder
-1/8 tsp pepper
-1/2 tsp salt
-1 egg
-1 tbsp olive oil
-1 tbsp butter
+- 1 lb ground beef
+- 1/4 cup panko bread crumbs
+- 1 tbsp parsley, chopped
+- 1/4 tsp ground allspice
+- 1/4 tsp ground nutmeg
+- 1/4 cup onion, finely chopped
+- 1/2 tsp garlic powder
+- 1/8 tsp pepper
+- 1/2 tsp salt
+- 1 egg
+- 1 tbsp olive oil
+- 1 tbsp butter
 
 ### Sauce
-4 tbsp butter
-3 tbsp flour
-2 cup beef broth
-1 cup heavy cream
-1 tbsp Worcestershire sauce
-1 tsp Dijon mustard
-Salt and pepper to taste
+- 4 tbsp butter
+- 3 tbsp flour
+- 2 cup beef broth
+- 1 cup heavy cream
+- 1 tbsp Worcestershire sauce
+- 1 tsp Dijon mustard
+- Salt and pepper to taste
 
 ## Instructions
 1. In a medium-sized bowl, combine 1 lb ground beef, 1/4 cup panko bread crumbs, 1 tbsp parsley, 1/4 tsp ground allspice, 1/4 tsp ground nutmeg, 1/4 cup onion, 1/2 tsp garlic powder, 1/8 tsp pepper, 1/2 tsp salt, and 1 egg. Mix until combined.

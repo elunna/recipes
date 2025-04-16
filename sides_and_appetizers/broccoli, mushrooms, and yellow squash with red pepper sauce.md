@@ -3,18 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-1 head broccoli, cut into florets
-2 tbsp coconut oil or extra-
-virgin olive oil
-1/4 small onion, finely chopped
-1/2 pt button, cremini, or portabella
-mushrooms, quartered
-1 medium yellow squash, cut into
-large dice
-2 cloves garlic, minced
-Salt and black pepper
-1/4 cup Roasted Red Pepper Sauce
-(page 316)
+- 1 head broccoli, cut into florets
+- 2 tbsp coconut oil or extra-virgin olive oil
+- 1/4 small onion, finely chopped
+- 1/2 pt button, cremini, or portabella mushrooms, quartered
+- 1 medium yellow squash, cut into large dice
+- 2 cloves garlic, minced
+- Salt and black pepper
+- 1/4 cup Roasted Red Pepper Sauce (page 316)
 
 ## Instructions
 1. BRING 1 cup of water to a boil in a large pot. Place a col-

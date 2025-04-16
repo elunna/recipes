@@ -3,14 +3,14 @@
 Yield: 1 1/2 cup
 
 ## Ingredients
-1 cup Basic Mayonnaise (page 179)
-1/4 cup coconut cream (see page 178)
-2 tbsp red wine vinegar
-1 tbsp minced fresh parsley
-1/2 tsp garlic powder
-1/2 tsp onion powder
-1/2 tsp black pepper
-1/4 tsp paprika
+- 1 cup Basic Mayonnaise (page 179)
+- 1/4 cup coconut cream (see page 178)
+- 2 tbsp red wine vinegar
+- 1 tbsp minced fresh parsley
+- 1/2 tsp garlic powder
+- 1/2 tsp onion powder
+- 1/2 tsp black pepper
+- 1/4 tsp paprika
 
 ## Instructions
 1. WHISK together the mayo, coconut cream, and

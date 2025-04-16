@@ -3,15 +3,15 @@
 Yield: 
 
 ## Ingredients
-1 large head cauliflower, cut into florets
-3 tbsp ghee or clarified butter
-1/2 onion, finely chopped
-1 carrot, peeled and finely chopped
-2 cloves garlic, minced
-1/2 cup chicken broth
-1 tbsp minced cilantro
-1/2 tsp salt
-1/2 tsp black pepper
+- 1 large head cauliflower, cut into florets
+- 3 tbsp ghee or clarified butter
+- 1/2 onion, finely chopped
+- 1 carrot, peeled and finely chopped
+- 2 cloves garlic, minced
+- 1/2 cup chicken broth
+- 1 tbsp minced cilantro
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. TO “rice” the cauliflower, place half of the florets in a food

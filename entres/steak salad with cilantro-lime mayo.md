@@ -3,21 +3,18 @@
 Yield: 2 servings
 
 ## Ingredients
-1/2 cup extra-virgin olive oil
-4 limes, juiced
-1/4 cup finely diced onion
-2 cloves garlic, minced
-2 tbsp roughly chopped fresh cilantro
-1 tsp mustard powder
-1 lb beef (flank steak, sirloin,
-or strip steak)
-4 cup salad greens
-1 avocado, split lengthwise, pitted, peeled and cut into large dice
-1/2 cup halved cherry tomatoes
-1 red, yellow, or orange bell pepper, seeded, ribs removed, and cut into
-large dice
-1/4 cup Cilantro-Lime Mayonnaise
-(page 310)
+- 1/2 cup extra-virgin olive oil
+- 4 limes, juiced
+- 1/4 cup finely diced onion
+- 2 cloves garlic, minced
+- 2 tbsp roughly chopped fresh cilantro
+- 1 tsp mustard powder
+- 1 lb beef (flank steak, sirloin, or strip steak)
+- 4 cup salad greens
+- 1 avocado, split lengthwise, pitted, peeled and cut into large dice
+- 1/2 cup halved cherry tomatoes
+- 1 red, yellow, or orange bell pepper, seeded, ribs removed, and cut into large dice
+- 1/4 cup Cilantro-Lime Mayonnaise (page 310)
 
 ## Instructions
 1. TO make the marinade, in a food processor, combine the olive

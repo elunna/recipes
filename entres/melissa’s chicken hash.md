@@ -3,19 +3,17 @@
 Yield: 2 servings
 
 ## Ingredients
-2 tbsp cooking fat
-1 lb boneless, skinless chicken
-thighs, cut into 1-inch dice
-1/2 tsp salt
-1/2 tsp black pepper
-1/4 cup chopped walnuts
-1 sweet potato, peeled and grated
-1 Granny Smith apple, cored,
-peeled, and diced
-1/2 tsp red pepper flakes
-1/4 cup apple cider
-2 generous handfuls arugula or baby spinach
-Splash of apple cider vinegar
+- 2 tbsp cooking fat
+- 1 lb boneless, skinless chicken thighs, cut into 1-inch dice
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 1/4 cup chopped walnuts
+- 1 sweet potato, peeled and grated
+- 1 Granny Smith apple, cored, peeled, and diced
+- 1/2 tsp red pepper flakes
+- 1/4 cup apple cider
+- 2 generous handfuls arugula or baby spinach
+- Splash of apple cider vinegar
 
 ## Instructions
 1. IN a large skillet, heat the cooking fat over medium-high

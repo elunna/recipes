@@ -3,25 +3,25 @@
 Yield: 10 servings
 
 ## Ingredients
-2 medium sweet potatoes, cubed
-2 large carrots, sliced
-1/4 cup chopped celery
-1 boneless beef chuck roast (2-1/2 lb)
-1 tbsp canola oil
-1 large onion, chopped
-2 garlic cloves, minced
-1 tbsp all-purpose flour
-1 tbsp sugar
-1 tbsp brown sugar
-1 tsp ground cumin
-3/4 tsp salt
-3/4 tsp ground coriander
-3/4 tsp chili powder
-1/2 tsp dried oregano
-1/8 tsp ground cinnamon
-3/4 tsp grated orange zest
-3/4 tsp baking cocoa
-1 can (15 oz) tomato sauce
+- 2 medium sweet potatoes, cubed
+- 2 large carrots, sliced
+- 1/4 cup chopped celery
+- 1 boneless beef chuck roast (2-1/2 lb)
+- 1 tbsp canola oil
+- 1 large onion, chopped
+- 2 garlic cloves, minced
+- 1 tbsp all-purpose flour
+- 1 tbsp sugar
+- 1 tbsp brown sugar
+- 1 tsp ground cumin
+- 3/4 tsp salt
+- 3/4 tsp ground coriander
+- 3/4 tsp chili powder
+- 1/2 tsp dried oregano
+- 1/8 tsp ground cinnamon
+- 3/4 tsp grated orange zest
+- 3/4 tsp baking cocoa
+- 1 can (15 oz) tomato sauce
 
 ## Instructions
 1. Place potatoes, carrots and celery in a 5-qt. slow cooker. In a large skillet, brown meat in oil on all sides. Transfer meat to slow cooker.

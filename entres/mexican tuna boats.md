@@ -3,17 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-1 avocado, pitted and peeled
-2 cans (5 oz each) tuna, drained
-3 green onions, thinly sliced
-Juice of 1 1/2 limes
-1/2 jalapeno, minced
-1 tbsp minced fresh cilantro
-1/2 tsp chili powder
-1/2 tsp salt
-1/8 tsp black pepper
-1 head endive, separated into leaves
-
+- 1 avocado, pitted and peeled
+- 2 cans (5 oz each) tuna, drained
+- 3 green onions, thinly sliced
+- Juice of 1 1/2 limes
+- 1/2 jalapeno, minced
+- 1 tbsp minced fresh cilantro
+- 1/2 tsp chili powder
+- 1/2 tsp salt
+- 1/8 tsp black pepper
+- 1 head endive, separated into leaves
 
 ## Instructions
 1. IN a medium sized bowl, mash the avocado with a fork,

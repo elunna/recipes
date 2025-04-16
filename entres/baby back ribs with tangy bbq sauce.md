@@ -3,19 +3,19 @@
 Yield: 2 servings
 
 ## Ingredients
-2 lb baby back ribs
-1 cup chicken broth (page 177) or water
-2 cup Tangy BBQ Sauce (page 322)
+- 2 lb baby back ribs
+- 1 cup chicken broth (page 177) or water
+- 2 cup Tangy BBQ Sauce (page 322)
 
 ### FOR THE RUB
-2 tbsp dried oregano
-1 tsp mustard powder
-1 tsp onion powder
-1 tsp garlic powder
-1 tbsp paprika
-1/2 tsp cumin
-1 tsp salt
-1 tsp black pepper
+- 2 tbsp dried oregano
+- 1 tsp mustard powder
+- 1 tsp onion powder
+- 1 tsp garlic powder
+- 1 tbsp paprika
+- 1/2 tsp cumin
+- 1 tsp salt
+- 1 tsp black pepper
 
 
 ## Instructions

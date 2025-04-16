@@ -3,14 +3,14 @@
 Yield: 
 
 ## Ingredients
-1/2 cup walnuts
-3 cloves garlic, minced
-3 cup packed fresh basil leaves
-1 cup spinach leaves
-Juice of 1/2 lemon
-1 1/2 cup extra-virgin olive oil
-1/2 tsp salt
-1/2 tsp black pepper
+- 1/2 cup walnuts
+- 3 cloves garlic, minced
+- 3 cup packed fresh basil leaves
+- 1 cup spinach leaves
+- Juice of 1/2 lemon
+- 1 1/2 cup extra-virgin olive oil
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. HEAT a dry skillet over medium-high heat. When the pan

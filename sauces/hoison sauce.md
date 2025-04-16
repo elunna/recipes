@@ -4,15 +4,15 @@ Yield: 1 dl
 Prep time: 10 min
 
 ## Ingredients
-1 tbsp garlic
-1 dl soy sauce/coconut aminos
-3 tbsp peanut butter
-3 tbsp honey/agave nectar
-1 tbsp rice wine vinegar
-2 tbsp avocado oil
-1 tbsp sesame oil
-1 tsp tabasco sauce
-1 tsp red miso paste
+- 1 tbsp garlic
+- 1 dl soy sauce/coconut aminos
+- 3 tbsp peanut butter
+- 3 tbsp honey/agave nectar
+- 1 tbsp rice wine vinegar
+- 2 tbsp avocado oil
+- 1 tbsp sesame oil
+- 1 tsp tabasco sauce
+- 1 tsp red miso paste
 
 ## Instructions
 1. Peel and chop the garlic. Add a small saucepan and add all the ingredients except sesame oil.

@@ -4,22 +4,22 @@ Yield: 4 - 6 serving(s)
 Prep time: 25 min
 
 ## Ingredients
-2 Tbsp. avocado oil, divided
-1 clove garlic, minced
-1 Tbsp. minced fresh ginger
-1 lb. ground pork
-Kosher salt
-Freshly ground black pepper
-1 Tbsp. sesame oil
-1/2 onion, thinly sliced
-1 cup very thinly sliced red bell pepper
-1 cup thinly sliced cremini mushrooms
-1/2 medium green cabbage, thinly sliced
-1 1/2 cup baby spinach
-1 jalapeño, minced
-2 Tbsp. tamari
-1 green onion, thinly sliced
-1 Tbsp. sesame seeds
+- 2 Tbsp. avocado oil, divided
+- 1 clove garlic, minced
+- 1 Tbsp. minced fresh ginger
+- 1 lb. ground pork
+- Kosher salt
+- Freshly ground black pepper
+- 1 Tbsp. sesame oil
+- 1/2 onion, thinly sliced
+- 1 cup very thinly sliced red bell pepper
+- 1 cup thinly sliced cremini mushrooms
+- 1/2 medium green cabbage, thinly sliced
+- 1 1/2 cup baby spinach
+- 1 jalapeño, minced
+- 2 Tbsp. tamari
+- 1 green onion, thinly sliced
+- 1 Tbsp. sesame seeds
 
 ## Instructions
 1. In a large skillet over medium heat, heat 1 tbsp avocado oil. Add garlic and ginger and cook until fragrant, 1 to 2 minutes. 

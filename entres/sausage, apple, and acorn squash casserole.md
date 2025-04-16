@@ -3,16 +3,14 @@
 Yield: 
 
 ## Ingredients
-
-1 lb Perfect Sausage (page 162)
-1 tbsp cooking fat
-2 cup button, crimini, or portabella mushrooms,
-thinly sliced
-1 cup diced peeled apple
-2 cup peeled, seeded, and finely diced acorn squash
-1 tbsp poultry seasoning
-1/4 cup pumpkin seeds or chopped pecans
-Salt and black pepper
+- 1 lb Perfect Sausage (page 162)
+- 1 tbsp cooking fat
+- 2 cup button, crimini, or portabella mushrooms, thinly sliced
+- 1 cup diced peeled apple
+- 2 cup peeled, seeded, and finely diced acorn squash
+- 1 tbsp poultry seasoning
+- 1/4 cup pumpkin seeds or chopped pecans
+- Salt and black pepper
 
 ## Instructions
 1. PREHEAT the oven to 375'F.

@@ -3,17 +3,17 @@
 Yield: 2 servings
 
 ## Ingredients
-3 tbsp cooking fat
-1/2 onion, finely diced
-2 cloves garlic, minced
-1 tbsp yellow curry powder
-1 cup canned crushed tomatoes
-1/2 cup coconut cream (see page 178)
-1 tsp salt
-1/2 tsp black pepper
-1 1/2 lb bone-in, skin-on, split
-chicken breasts (2 pieces)
-1 lime, quartered
+- 3 tbsp cooking fat
+- 1/2 onion, finely diced
+- 2 cloves garlic, minced
+- 1 tbsp yellow curry powder
+- 1 cup canned crushed tomatoes
+- 1/2 cup coconut cream (see page 178)
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 1 1/2 lb bone-in, skin-on, split
+- chicken breasts (2 pieces)
+- 1 lime, quartered
 
 ## Instructions
 1. TO make the curry sauce, melt the cooking fat in a sauce-

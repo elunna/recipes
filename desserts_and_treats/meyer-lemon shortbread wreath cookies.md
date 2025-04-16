@@ -5,19 +5,19 @@ Prep time: 1hr 25 min
 
 ## Ingredients
 Cookies
-2 sticks unsalted butter, room temperature
-1 tbsp packed finely grated Meyer-lemon zest, plus 2 tbsp fresh juice (from 2 lemons)
-3/4 cup confectioners' sugar
-1 1/4 tsp kosher salt
-2 cup unbleached all-purpose flour, plus more for dusting
+- 2 sticks unsalted butter, room temperature
+- 1 tbsp packed finely grated Meyer-lemon zest, plus 2 tbsp fresh juice (from 2 lemons)
+- 3/4 cup confectioners' sugar
+- 1 1/4 tsp kosher salt
+- 2 cup unbleached all-purpose flour, plus more for dusting
 
 Glaze and Decorations
-60 sprigs (each about 1 inch long) fresh thyme or rosemary, or a combination
-1 large egg white, beaten
-Granulated sugar, for sprinkling
-3/4 cup plus 2 tbsp confectioners' sugar
-3 tbsp fresh Meyer-lemon juice
-Small red, white, and green candies, such as nonpareils and pearls
+- 60 sprigs (each about 1 inch long) fresh thyme or rosemary, or a combination
+- 1 large egg white, beaten
+- Granulated sugar, for sprinkling
+- 3/4 cup plus 2 tbsp confectioners' sugar
+- 3 tbsp fresh Meyer-lemon juice
+- Small red, white, and green candies, such as nonpareils and pearls
 
 ## Instructions
 1. Cookies: Line 2 baking sheets with parchment. In the bowl of a mixer fitted with the paddle attachment, beat butter with zest on medium-high speed until fluffy, about 2 minutes. Beat in confectioners' sugar until pale and fluffy, about 1 minute more. Reduce speed to low. Beat in lemon juice and salt, then flour, until combined. Divide dough in half, transfer each to plastic wrap, pat into disks, wrap, and refrigerate until firm, at least 4 hours and up to 3 days (or freeze up to 1 month; thaw in refrigerator before using).

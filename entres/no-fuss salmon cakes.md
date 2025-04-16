@@ -4,18 +4,18 @@ Yield: 2 servings
 Prep time: 45 min
 
 ## Ingredients
-3 6-oz cans wild-caught salmon (boneless or bones removed)
-1 cup canned sweet potatoes
-1 egg 
-1/2 cup almond flour
-3 scallions, thinly sliced, plus extra for garnish
-2 tbsp fresh parsley, minced (or 2 tsp dried)
-2 tbsp fresh minced dill (or 2 tsp dried)
-1 tsp salt
-1/2 tsp paprika
-1/4 tsp ground black pepper
-2 tbsp ghee/coconut oil
-lemon wedges for serving
+- 3 6-oz cans wild-caught salmon (boneless or bones removed)
+- 1 cup canned sweet potatoes
+- 1 egg 
+- 1/2 cup almond flour
+- 3 scallions, thinly sliced, plus extra for garnish
+- 2 tbsp fresh parsley, minced (or 2 tsp dried)
+- 2 tbsp fresh minced dill (or 2 tsp dried)
+- 1 tsp salt
+- 1/2 tsp paprika
+- 1/4 tsp ground black pepper
+- 2 tbsp ghee/coconut oil
+- lemon wedges for serving
 
 
 ## Instructions

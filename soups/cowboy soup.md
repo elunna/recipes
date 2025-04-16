@@ -7,18 +7,18 @@ Yield:
 Prep time:
 
 ## Ingredients
-2 peppers
-2 baking potatoes ~250g
-500g mixed or chicken mince
-1 tsk oil
-1 clove
-1 tsk paprika powder
-1 tsk dried oregano
-salt
-pepper
-1 white beans in tomato sauce (380g)
-2 1/2 dl whipped cream
-5 dl meat broth
+- 2 peppers
+- 2 baking potatoes ~250g
+- 500g mixed or chicken mince
+- 1 tsk oil
+- 1 clove
+- 1 tsk paprika powder
+- 1 tsk dried oregano
+- salt
+- pepper
+- 1 white beans in tomato sauce (380g)
+- 2 1/2 dl whipped cream
+- 5 dl meat broth
 
 ## Instructions
 1. Divide, seed and cut the peppers into cubes. Peel and cut the potatoes into 2 cm large dice.

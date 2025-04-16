@@ -16,8 +16,6 @@ Prep time: 25min
 - 1 tsp salt
 - 1/2 tsp black pepper
 
-
-
 ## Instructions
 - Melt the cooking fat in a large skillet over medium-high heat.
 - When the fat is hot, add the almonds and toast for 3 min, stirring often.

@@ -4,17 +4,17 @@ Yield: 16 serving(s)
 Prep time: 10 min
 
 ## Ingredients
-Cooking spray
-3/4 cup (1 1/2 sticks) butter, softened
-1 cup sugar
-1/2 cup packed brown sugar
-2 large eggs
-2 tsp. pure vanilla extract
-2 cup all-purpose flour
-1 tsp. ground cinnamon
-3/4 tsp. baking powder
-1/2 tsp. kosher salt
-2 Tbsp. cinnamon sugar
+- Cooking spray
+- 3/4 cup (1 1/2 sticks) butter, softened
+- 1 cup sugar
+- 1/2 cup packed brown sugar
+- 2 large eggs
+- 2 tsp. pure vanilla extract
+- 2 cup all-purpose flour
+- 1 tsp. ground cinnamon
+- 3/4 tsp. baking powder
+- 1/2 tsp. kosher salt
+- 2 Tbsp. cinnamon sugar
 
 ## Instructions
 1. Preheat oven to 350°

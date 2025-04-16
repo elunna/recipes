@@ -3,13 +3,13 @@
 Yield: 2 servings
 
 ## Ingredients
-2 steaks (5 oz each) for grilling (sirloin, strip, rib eye, tenderloin)
-1 tsp salt
-1 tsp black pepper
-2 cloves garlic, peeled
-1 shallot, peeled
-2 tbsp extra-virgin olive oil
-1 avocado, split lengthwise, pitted and peeled
+- 2 steaks (5 oz each) for grilling (sirloin, strip, rib eye, tenderloin)
+- 1 tsp salt
+- 1 tsp black pepper
+- 2 cloves garlic, peeled
+- 1 shallot, peeled
+- 2 tbsp extra-virgin olive oil
+- 1 avocado, split lengthwise, pitted and peeled
 
 ## Instructions
 1. REMOVE the steaks from the refrigerator 30 minutes

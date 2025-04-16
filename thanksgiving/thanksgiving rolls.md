@@ -3,13 +3,13 @@
 Yield: 12 servings
 
 ## Ingredients
-500ml plus 2 tbsp milk
-110g unsalted butter, plus more for the baking dish
-3 tbsp caster sugar
-7g active dry yeast
-700g plain flour
-1 tbsp fine salt
-Vegetable oil, as needed
+- 500ml plus 2 tbsp milk
+- 110g unsalted butter, plus more for the baking dish
+- 3 tbsp caster sugar
+- 7g active dry yeast
+- 700g plain flour
+- 1 tbsp fine salt
+- Vegetable oil, as needed
 
 ## Instructions
 1. In a small saucepan, combine the milk, 45g butter and the sugar. Place over a medium-high heat and cook, stirring, until the butter has melted. Remove from the heat and cool to about 55C. Scatter the yeast over the surface of the liquid and set aside until foamy, about 10 minutes.

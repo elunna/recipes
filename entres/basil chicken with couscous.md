@@ -4,17 +4,17 @@ Yield: 4 servings
 Prep time: 45 min
 
 ## Ingredients
-4 port couscous
-1 clove
-3 dl sour cream
-salt
-pepper
-1 dl green olives with pimiento
-1/2 pack plum tomatoes (500g, or 3-4 tomatoes)
-4 chicken fillets
-1/2 tbsp oil
-2 tbsp frozen basil
-1/2 tbsp liquid honey
+- 4 port couscous
+- 1 clove
+- 3 dl sour cream
+- salt
+- pepper
+- 1 dl green olives with pimiento
+- 1/2 pack plum tomatoes (500g, or 3-4 tomatoes)
+- 4 chicken fillets
+- 1/2 tbsp oil
+- 2 tbsp frozen basil
+- 1/2 tbsp liquid honey
 
 ## Instructions
 

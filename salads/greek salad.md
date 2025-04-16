@@ -3,17 +3,17 @@
 Yield: 2 servings
 
 ## Ingredients
-1 head romaine lettuce, shopped
-4 tomatoes, seeded and cut into large dice
-1 cucumber, peeled and cut into large dice
-1/2 red onion, thinly sliced
-30 pitted Kalamata olives, halved
-1/4 cup extra-virgin olive oil
-2 tbsp red wine vinegar
-1 tbsp garlic, minced
-1/4 tsp salt
-1/4 tsp black pepper
-Juice of 1/2 lemon
+- 1 head romaine lettuce, shopped
+- 4 tomatoes, seeded and cut into large dice
+- 1 cucumber, peeled and cut into large dice
+- 1/2 red onion, thinly sliced
+- 30 pitted Kalamata olives, halved
+- 1/4 cup extra-virgin olive oil
+- 2 tbsp red wine vinegar
+- 1 tbsp garlic, minced
+- 1/4 tsp salt
+- 1/4 tsp black pepper
+- Juice of 1/2 lemon
 
 ## Instructions
 1. Combine the lettuce, tomatoes, cucumber, onion, and olives in a large serving bowl.

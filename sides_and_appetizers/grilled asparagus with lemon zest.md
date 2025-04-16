@@ -3,11 +3,10 @@
 Yield: 
 
 ## Ingredients
-1 lb asparagus, trimmed
-1 tbsp clarified butter, ghee,
-or coconut oil, melted
-1/2 tsp salt
-Grated zest and juice of 1 lemon
+- 1 lb asparagus, trimmed
+- 1 tbsp clarified butter, ghee, or coconut oil, melted
+- 1/2 tsp salt
+- Grated zest and juice of 1 lemon
 
 ## Instructions
 1. PREHEAT a grill to medium-high heat (400°F). Line a bak-

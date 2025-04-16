@@ -4,27 +4,27 @@ Yield:
 Prep time:
 
 ## Ingredients
-2 tbsp olive oil
-2 lb lean ground turkey
-1 sweet onion, finely chopped
-3 cloves of garlic, minced
-1 (28oz) can black beans, drained
-1 (15oz) can kidney or pinto beans
-1 (28oz) can crushed tomatoes
-1 (15oz) can petite diced tomatoes
-1 yellow bell pepper, chopped
-1 red bell pepper, chopped
-1 yellow pepper, chopped
-2 cup chicken or vegetable broth
-2 tbsp chili powder
-1 tbsp brown sugar
-2 tsp hot sauce
-1 tsp dried oregano
-1 tsp dried basil
-1 tsp garlic powder
-1 1/2 tsp sea salt
-1/2 tsp cayenne pepper (optional)
-Toppings: Sour cream, shredded cheddar cheese, green onions, limes
+- 2 tbsp olive oil
+- 2 lb lean ground turkey
+- 1 sweet onion, finely chopped
+- 3 cloves of garlic, minced
+- 1 (28oz) can black beans, drained
+- 1 (15oz) can kidney or pinto beans
+- 1 (28oz) can crushed tomatoes
+- 1 (15oz) can petite diced tomatoes
+- 1 yellow bell pepper, chopped
+- 1 red bell pepper, chopped
+- 1 yellow pepper, chopped
+- 2 cup chicken or vegetable broth
+- 2 tbsp chili powder
+- 1 tbsp brown sugar
+- 2 tsp hot sauce
+- 1 tsp dried oregano
+- 1 tsp dried basil
+- 1 tsp garlic powder
+- 1 1/2 tsp sea salt
+- 1/2 tsp cayenne pepper (optional)
+- Toppings: Sour cream, shredded cheddar cheese, green onions, limes
 
 
 ## Instructions

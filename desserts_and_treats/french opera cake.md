@@ -5,19 +5,18 @@ Prep time:
 
 ## Ingredients
 For the cake:
-
-85 g (3 oz) confectioners’ sugar, sifted
-4 large eggs
-1 tsp vanilla bean extract
-115 g (4 oz) almond meal
-65 g (2.3 oz) plain flour
-2 tbsp espresso powder
-1 tsp baking powder
-1/8 tsp fine sea salt
-2 tbsp unsalted butter, melted
-4 large egg whites
-50 g (1.8 oz) caster sugar
-1 tsp cream of tartar
+- 85 g (3 oz) confectioners’ sugar, sifted
+- 4 large eggs
+- 1 tsp vanilla bean extract
+- 115 g (4 oz) almond meal
+- 65 g (2.3 oz) plain flour
+- 2 tbsp espresso powder
+- 1 tsp baking powder
+- 1/8 tsp fine sea salt
+- 2 tbsp unsalted butter, melted
+- 4 large egg whites
+- 50 g (1.8 oz) caster sugar
+- 1 tsp cream of tartar
 
 ## Instructions
 

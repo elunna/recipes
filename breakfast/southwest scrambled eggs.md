@@ -3,12 +3,12 @@
 Yield: 2 servings
 
 ## Ingredients
-1 avocado, split lengthwise, pitted, and peeled
-2 tbsp cooking fat
-6 large eggs, beaten
-1 tsp salt
-2 tsp black pepper
-1 cup salsa
+- 1 avocado, split lengthwise, pitted, and peeled
+- 2 tbsp cooking fat
+- 6 large eggs, beaten
+- 1 tsp salt
+- 2 tsp black pepper
+- 1 cup salsa
 
 ## Instructions
 1. SET the avocado halves flat side down on a cutting board

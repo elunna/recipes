@@ -4,19 +4,17 @@ Yield: 2-3 servings
 Prep time:
 
 ## Ingredients
-
-2 cans of wild tuna
-2–3 tbsp of mayo 
-1 tbsp dijon or spicy mustard
-4 tbsp chopped onion
-1/4 cup chopped carrot
-1/4 cup chopped celery
-1/2 tsp black pepper
-Dill to taste
-3 ripe avocados
+- 2 cans of wild tuna
+- 2–3 tbsp of mayo 
+- 1 tbsp dijon or spicy mustard
+- 4 tbsp chopped onion
+- 1/4 cup chopped carrot
+- 1/4 cup chopped celery
+- 1/2 tsp black pepper
+- Dill to taste
+- 3 ripe avocados
 
 ## Instructions
-
 1. Open the tuna up, drain excess liquid.
 2. Add the tuna to a medium bowl or tupperware of choice (I use tupperware when I am prepping this so I only dirty one dish)
 3. Add the mayo and black pepper and mix well with your fork (I usually mash it down with the fork)

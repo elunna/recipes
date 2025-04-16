@@ -4,22 +4,22 @@ Yield: 4 servings
 Prep time: 10 min
 
 ## Ingredients
-2 Tablespoons oil
-4 boneless skinless chicken thighs cut into bite-sized pieces
-1 yellow onion diced
-1 generous pinch salt
-2 teaspoons freshly grated ginger
-2 minced garlic cloves
-1 teaspoon ground turmeric
-¼ teaspoon allspice
-1 sweet potato sliced
-2 cups fire-roasted diced tomatoes
-2 cups water
-1 cup coconut milk
-3 stalks fresh lemongrass or 1/2 teaspoon lemongrass paste
-2 cinnamon sticks
-¼ cup white miso
-Fresh cilantro for garnish
+- 2 tbsp oil
+- 4 boneless skinless chicken thighs cut into bite-sized pieces
+- 1 yellow onion diced
+- 1 generous pinch salt
+- 2 tsp freshly grated ginger
+- 2 minced garlic cloves
+- 1 teaspoon ground turmeric
+- ¼ teaspoon allspice
+- 1 sweet potato sliced
+- 2 cups fire-roasted diced tomatoes
+- 2 cups water
+- 1 cup coconut milk
+- 3 stalks fresh lemongrass or 1/2 teaspoon lemongrass paste
+- 2 cinnamon sticks
+- ¼ cup white miso
+- Fresh cilantro for garnish
 
 ## Instructions
 1. Heat the oil in a large pot over medium-high heat. Add the chicken and cook until browned, 2-4 minutes. Transfer to a plate. 

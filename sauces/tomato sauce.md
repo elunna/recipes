@@ -3,18 +3,17 @@
 Yield: 
 
 ## Ingredients
-1 tbsp cooking fat
-1 onion, finely chopped
-2 celery stalks, finely chopped
-1 carrot, peeled and finely chopped
-2 cloves garlic, minced
-1 can (28 oz) crushed tomatoes
-1 tsp fresh thyme
-1 tsp fresh oregano
-1 bay leaf
-1 tsp salt
-1 tsp black pepper
-
+- 1 tbsp cooking fat
+- 1 onion, finely chopped
+- 2 celery stalks, finely chopped
+- 1 carrot, peeled and finely chopped
+- 2 cloves garlic, minced
+- 1 can (28 oz) crushed tomatoes
+- 1 tsp fresh thyme
+- 1 tsp fresh oregano
+- 1 bay leaf
+- 1 tsp salt
+- 1 tsp black pepper
 
 ## Instructions
 1. HEAT the cooking fat in a large pot over medium heat.

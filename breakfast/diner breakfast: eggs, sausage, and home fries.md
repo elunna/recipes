@@ -3,16 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-3 tbsp cooking fat
-1/4 cup finely diced white onion
-1/2 lb ground meat (pork, chicken, turkey)
-1/4 tsp dried sage
-1/4 tsp salt
-1/8 tsp black pepper
-1/8 tsp garlic powder
-1 sweet potato, peeled and cut into large dice
-1/2 bell pepper, (any color), seeded, ribs removed, and diced
-4 large eggs, cracked into a bowl
+- 3 tbsp cooking fat
+- 1/4 cup finely diced white onion
+- 1/2 lb ground meat (pork, chicken, turkey)
+- 1/4 tsp dried sage
+- 1/4 tsp salt
+- 1/8 tsp black pepper
+- 1/8 tsp garlic powder
+- 1 sweet potato, peeled and cut into large dice
+- 1/2 bell pepper, (any color), seeded, ribs removed, and diced
+- 4 large eggs, cracked into a bowl
 
 ## Instructions
 1. PREHEAT the oven to 350°F.

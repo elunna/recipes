@@ -3,12 +3,11 @@
 Yield: 2 servings
 
 ## Ingredients
-1 lb lean steak (sirloin, strip, flank),
-cut into 1-inch dice
-1/2 cup Chimichurri (page 306)
-1 red, yellow or orange bell pepper, seeded, ribs removed, and cut into 1 1/2" squares
-onion, cut into 6 wedges
-1 zucchini, cut into 11/-inch-thick rounds
+- 1 lb lean steak (sirloin, strip, flank), cut into 1-inch dice
+- 1/2 cup Chimichurri (page 306)
+- 1 red, yellow or orange bell pepper, seeded, ribs removed, and cut into 1 1/2" squares
+- 1 onion, cut into 6 wedges
+- 1 zucchini, cut into 11/-inch-thick rounds
 
 ## Instructions
 1. IF using wooden skewers, soak them in water for 30 min-

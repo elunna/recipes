@@ -4,16 +4,16 @@ Yield: 12 servings
 Prep time: 40 min
 
 ## Ingredients
-1 large egg
-1/4 cup mayonnaise
-1 tsp Old Bay seasoning
-Kosher salt
-1 lb jumbo lump crabmeat, picked over
-Coarse cornmeal, preferably stone-ground, for dusting
-1 celery stalk, thinly sliced crosswise
-1 mini cucumber, cut into thin rounds
-1 lime, halved
-1/4 cup safflower oil
+- 1 large egg
+- 1/4 cup mayonnaise
+- 1 tsp Old Bay seasoning
+- Kosher salt
+- 1 lb jumbo lump crabmeat, picked over
+- Coarse cornmeal, preferably stone-ground, for dusting
+- 1 celery stalk, thinly sliced crosswise
+- 1 mini cucumber, cut into thin rounds
+- 1 lime, halved
+- 1/4 cup safflower oil
 
 ## Instructions
 1. In a large bowl, whisk together egg, mayonnaise, Old Bay, and 1/2 tsp salt. Fold in crabmeat to evenly coat (do not overmix). Generously dust a parchment-lined rimmed baking sheet with cornmeal. Divide crab mixture evenly into 12 portions, forming each into a 2-inch-diameter, 1-inch-thick patty. Transfer to prepared baking sheet. Dust tops of crab cakes generously with cornmeal and chill in refrigerator until set, at least 1 hour and up to 1 day.

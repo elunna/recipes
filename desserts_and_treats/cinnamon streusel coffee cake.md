@@ -4,28 +4,28 @@ Yield: one 9" by 13" or two 9" round cakes
 
 ## Ingredients
 ### Topping
-1 cup (198g) granulated sugar
-1/4 tsp table salt, (if you use unsalted butter)
-1 cup (120g) King Arthur Unbleached All-Purpose Flour
-1 tbsp cinnamon
-6 tbsp (85g) butter, melted
+- 1 cup (198g) granulated sugar
+- 1/4 tsp table salt, (if you use unsalted butter)
+- 1 cup (120g) King Arthur Unbleached All-Purpose Flour
+- 1 tbsp cinnamon
+- 6 tbsp (85g) butter, melted
 
 ### Filling
-1 cup (213g) dark brown sugar or light brown sugar, packed
-1 1/2 tbsp cinnamon
-1 tsp unsweetened cocoa, Dutch-process or natural
+- 1 cup (213g) dark brown sugar or light brown sugar, packed
+- 1 1/2 tbsp cinnamon
+- 1 tsp unsweetened cocoa, Dutch-process or natural
 
 ### Cake
-12 tbsp (170g) butter, at room temperature, at least 65°F
-1 tsp table salt, (1 1/4 tsp if you use unsalted butter)
-1 1/2 cup (298g) granulated sugar
-1/3 cup (71g) light brown sugar or dark brown sugar, packed
-2 1/2 tsp baking powder
-2 tsp King Arthur Pure Vanilla Extract
-3 large eggs, at room temperature
-3/4 cup (170g) sour cream or plain yogurt, at room temperature
-1 1/4 cup (283g) milk, anything from skim to whole, at room temperature
-3 3/4 cup (450g) King Arthur Unbleached All-Purpose Flour
+- 12 tbsp (170g) butter, at room temperature, at least 65°F
+- 1 tsp table salt, (1 1/4 tsp if you use unsalted butter)
+- 1 1/2 cup (298g) granulated sugar
+- 1/3 cup (71g) light brown sugar or dark brown sugar, packed
+- 2 1/2 tsp baking powder
+- 2 tsp King Arthur Pure Vanilla Extract
+- 3 large eggs, at room temperature
+- 3/4 cup (170g) sour cream or plain yogurt, at room temperature
+- 1 1/4 cup (283g) milk, anything from skim to whole, at room temperature
+- 3 3/4 cup (450g) King Arthur Unbleached All-Purpose Flour
 
 ## Instructions
 1. Preheat the oven to 350°F. Lightly grease a 9" x 13" pan, or two 9" round cake pans.

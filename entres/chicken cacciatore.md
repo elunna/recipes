@@ -3,21 +3,19 @@
 Yield: 
 
 ## Ingredients
-
-4 tbsp cooking fat
-1 lb chicken legs (bone-in, skin-on)
-1/2 lb chicken thighs (boneless)
-1/2 tsp salt
-1/2 tsp black pepper
-1/2 onion, minced
-1/2 red bell pepper, finely diced
-1 cup mushrooms, sliced
-2 cloves garlic, minced
-1 tbsp capers, drained
-1 14.5-oz can diced tomatoes
-1 cup chicken broth or water
-1 tbsp fresh basil leaves, rough chopped
-
+- 4 tbsp cooking fat
+- 1 lb chicken legs (bone-in, skin-on)
+- 1/2 lb chicken thighs (boneless)
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 1/2 onion, minced
+- 1/2 red bell pepper, finely diced
+- 1 cup mushrooms, sliced
+- 2 cloves garlic, minced
+- 1 tbsp capers, drained
+- 1 14.5-oz can diced tomatoes
+- 1 cup chicken broth or water
+- 1 tbsp fresh basil leaves, rough chopped
 
 ## Instructions
 1. IN a large skillet with high edges, heat 2 tbsp of

@@ -1,24 +1,18 @@
 # Broiled Salmon with Scallions and Sesame
 ---
 Yield: 3 servings
-Category:
-Prep time:
-Rating:
-Source:
-URL:
-Image: 
 
 ## Ingredients
-2 garlic cloves, thinly sliced
-3 tbsp fresh lime juice
-2 tbsp soy sauce
-2 tsp honey
-1 tbsp plus 2 tsp vegetable oil
-1 tsp sesame seeds, plus more for serving
-3 8-oz skin-on center-cut salmon fillets
-Kosher salt
-1 bunch scallions
-1 Fresno chile, thinly sliced
+- 2 garlic cloves, thinly sliced
+- 3 tbsp fresh lime juice
+- 2 tbsp soy sauce
+- 2 tsp honey
+- 1 tbsp plus 2 tsp vegetable oil
+- 1 tsp sesame seeds, plus more for serving
+- 3 8-oz skin-on center-cut salmon fillets
+- Kosher salt
+- 1 bunch scallions
+- 1 Fresno chile, thinly sliced
 
 ## Instructions
 1. Whisk garlic, lime juice, soy sauce, honey, 1 Tbsp. oil, and � tsp. sesame seeds in a small bowl. 

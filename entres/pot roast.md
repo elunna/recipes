@@ -3,19 +3,17 @@
 Yield: 
 
 ## Ingredients
-1 1/2 lb beef roast (chuck, boneless
-short ribs, brisket, top round, rump)
-1 tsp salt
-1/2 tsp black pepper
-1 onion, sliced
-3 carrots, unpeeled and cut into
-2-inch pieces
-3 stalks celery, cut into 1-inch pieces
-1 small butternut squash, peeled
-and large-diced
-2 cloves garlic
-2 sprigs thyme
-2 cup beef broth or water
+- 1 1/2 lb beef roast (chuck, boneless short ribs, brisket, top round, rump)
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 1 onion, sliced
+- 3 carrots, unpeeled and cut into
+- 2-inch pieces
+- 3 stalks celery, cut into 1-inch pieces
+- 1 small butternut squash, peeled and large-diced
+- 2 cloves garlic
+- 2 sprigs thyme
+- 2 cup beef broth or water
 
 ## Instructions
 1. SET your slow cooker to low heat, and season your roast

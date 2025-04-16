@@ -1,29 +1,24 @@
 # Asian Chicken Lettuce Wraps
 ---
 Yield: 8 cup
-Category:
 Prep time:2.5 hrs
-Rating:
-Source:
-URL:
-Image: 
 Description: Healthy Asian lettuce wraps with ground chicken or ground turkey, green onions, and fresh veggies. Easy to make and better than PF Chang's!
 
 ## Ingredients
-1/2 cup hoisin sauce
-1/4 cup reduced-sodium soy sauce � plus 1 tbsp, use tamari to make gluten free
-2 tbsp rice vinegar
-2 tsp sesame oil
-1 tbsp extra-virgin olive oil
-2 lb ground chicken breast
-1 small bunch green onions � thinly sliced, white/light green and dark green parts divided
-1 tbsp freshly grated ginger
-2 cloves garlic � minced (about 2 tsp)
-8 oz baby bella cremini mushrooms � finely chopped
-1 1/2 cup grated carrots � from about 3 large carrots
-1/2 tsp red pepper flakes � reduce to 1/4 tsp or omit if sensitive to spice
-2 cans water chestnuts, drained and finely chopped � (8 oz cans) drained and finely chopped
-2 heads butter lettuce
+- 1/2 cup hoisin sauce
+- 1/4 cup + 1 tbsp reduced-sodium soy sauce, use tamari to make gluten free
+- 2 tbsp rice vinegar
+- 2 tsp sesame oil
+- 1 tbsp extra-virgin olive oil
+- 2 lb ground chicken breast
+- 1 small bunch green onions, thinly sliced, white/light green and dark green parts divided
+- 1 tbsp freshly grated ginger
+- 2 cloves garlic, minced (about 2 tsp)
+- 8 oz baby bella cremini mushrooms, finely chopped
+- 1 1/2 cup grated carrots, from about 3 large carrots
+- 1/2 tsp red pepper flakes, reduce to 1/4 tsp or omit if sensitive to spice
+- 2 cans water chestnuts, drained and finely chopped, (8 oz cans) drained and finely chopped
+- 2 heads butter lettuce
 
 ## Instructions
 1. Lightly coat a 5-qt or larger slow cooker with nonstick spray. 

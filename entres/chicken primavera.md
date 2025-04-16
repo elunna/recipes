@@ -3,24 +3,21 @@
 Yield: 
 
 ## Ingredients
-2 tbsp cooking fat
-1/2 cup diced onions
-2 cloves garlic, minced
-1 tsp minced fresh oregano
-1 tsp fresh thyme
-3 cup diced seeded tomatoes (about
-3 large tomatoes)
-1 lb boneless, skinless chicken
-thighs, 1-inch diced
-2 cup green beans, cut into 1-inch pieces
-
-1 1/2 cup medium-diced zucchini
-1 1/2 cup medium-diced yellow squash
-
-1/4 tsp red pepper flakes
-1 tsp salt
-1/2 tsp black pepper
-1 to 2 tbsp minced fresh basil leaves
+- 2 tbsp cooking fat
+- 1/2 cup diced onions
+- 2 cloves garlic, minced
+- 1 tsp minced fresh oregano
+- 1 tsp fresh thyme
+- 3 cup diced seeded tomatoes (about
+- 3 large tomatoes)
+- 1 lb boneless, skinless chicken thighs, 1-inch diced
+- 2 cup green beans, cut into 1-inch pieces
+- 1 1/2 cup medium-diced zucchini
+- 1 1/2 cup medium-diced yellow squash
+- 1/4 tsp red pepper flakes
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 1 to 2 tbsp minced fresh basil leaves
 
 ## Instructions
 1. IN a large pot or Dutch oven, heat the cooking fat on

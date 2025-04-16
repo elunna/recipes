@@ -3,13 +3,13 @@
 Yield: 
 
 ## Ingredients
-2 packages (10 oz each) frozen spinach, thawed
-2 tbsp clarified butter or ghee
-1/2 onion, finely diced
-3 cloves garlic, minced
-1 can (13.5 oz) full-fat coconut milk
-1/4 tsp salt
-1/4 tsp black pepper
+- 2 packages (10 oz each) frozen spinach, thawed
+- 2 tbsp clarified butter or ghee
+- 1/2 onion, finely diced
+- 3 cloves garlic, minced
+- 1 can (13.5 oz) full-fat coconut milk
+- 1/4 tsp salt
+- 1/4 tsp black pepper
 
 ## Instructions
 1. DRAIN the thawed spinach by placing it in a

@@ -5,28 +5,28 @@ Prep time:
 
 ## Ingredients
 ### Nuoc Cham
-3 Tbsp. granulated sugar
-1/2 bird’s eye chile, thinly sliced
-1/4 cup fresh lime juice
-2 Tbsp. fish sauce
-Vietnamese Peanut Sauce
-6 Tbsp. hoisin sauce
-3 Tbsp. all-natural creamy peanut butter
-2 Tbsp. unseasoned rice vinegar
-2 tsp. chili garlic paste (or sriracha sauce)
+- 3 Tbsp. granulated sugar
+- 1/2 bird’s eye chile, thinly sliced
+- 1/4 cup fresh lime juice
+- 2 Tbsp. fish sauce
+- Vietnamese Peanut Sauce
+- 6 Tbsp. hoisin sauce
+- 3 Tbsp. all-natural creamy peanut butter
+- 2 Tbsp. unseasoned rice vinegar
+- 2 tsp. chili garlic paste (or sriracha sauce)
 
 ### Bowls
-1 Tbsp. granulated sugar
-1 Tbsp. unseasoned rice vinegar
-1 Tbsp. plus 1/2 tsp. kosher salt, divided
-8 oz. medium shrimp, peeled, deveined
-8 oz. straight-cut rice noodles
-2 cup thinly sliced romaine lettuce
-1 large carrot, thinly sliced into long batons
-1 Persian cucumber, thinly sliced into long batons
-1/2 avocado, thinly sliced
-1/2 cup packed mixed fresh mint, cilantro, and Thai basil leaves
-1/4 cup unsalted roasted peanuts
+- 1 Tbsp. granulated sugar
+- 1 Tbsp. unseasoned rice vinegar
+- 1 Tbsp. plus 1/2 tsp. kosher salt, divided
+- 8 oz. medium shrimp, peeled, deveined
+- 8 oz. straight-cut rice noodles
+- 2 cup thinly sliced romaine lettuce
+- 1 large carrot, thinly sliced into long batons
+- 1 Persian cucumber, thinly sliced into long batons
+- 1/2 avocado, thinly sliced
+- 1/2 cup packed mixed fresh mint, cilantro, and Thai basil leaves
+- 1/4 cup unsalted roasted peanuts
 
 ## Instructions
 ### Nuoc Cham

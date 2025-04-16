@@ -4,18 +4,18 @@ Yield: 6 servings
 Prep time: 30 min
 
 ## Ingredients
-2 Tablespoons olive oil
-1 small sweet onion chopped
-3 cloves garlic minced
-8 cups low sodium vegetable broth
-1 can 14.5 ounces plum tomatoes in puree, chopped
-½ small head cabbage sliced
-3 carrots peeled and sliced
-3 celery ribs sliced
-2 teaspoons Italian seasoning
-1 teaspoon salt
-½ teaspoon pepper
-¼ cup chopped fresh parsley
+- 2 Tablespoons olive oil
+- 1 small sweet onion chopped
+- 3 cloves garlic minced
+- 8 cups low sodium vegetable broth
+- 1 can 14.5 ounces plum tomatoes in puree, chopped
+- ½ small head cabbage sliced
+- 3 carrots peeled and sliced
+- 3 celery ribs sliced
+- 2 teaspoons Italian seasoning
+- 1 teaspoon salt
+- ½ teaspoon pepper
+- ¼ cup chopped fresh parsley
 
 ## Instructions
 1. In a large soup pot, heat the olive oil over medium-high heat.

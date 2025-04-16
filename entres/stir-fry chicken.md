@@ -3,18 +3,17 @@
 Yield: 
 
 ## Ingredients
-3 tbsp cooking fat
-1 lb chicken breast or thighs
-(boneless, skinless)
-1 clove garlic, minced
-1 tbsp ginger, grated
-1 head broccoli florets
-2 cup mushrooms, sliced
-2 carrots, julienned
-1/2 lb green beans, cut into 1-inch pieces
-2 green onions, minced
-1/2 lime, juiced©
-1 tbsp minced fresh cilantro
+- 3 tbsp cooking fat
+- 1 lb chicken breast or thighs (boneless, skinless)
+- 1 clove garlic, minced
+- 1 tbsp ginger, grated
+- 1 head broccoli florets
+- 2 cup mushrooms, sliced
+- 2 carrots, julienned
+- 1/2 lb green beans, cut into 1-inch pieces
+- 2 green onions, minced
+- 1/2 lime, juiced©
+- 1 tbsp minced fresh cilantro
 
 ## Instructions
 1. HEAT 2 tbsp of the cooking fat in a large skillet over

@@ -4,25 +4,25 @@ Yield: 4 servings
 Prep time: 10 min
 
 ## Ingredients
-1 large sweet potato, peeled, cut into 1/2" cubes
-1 large red onion, finely chopped
-3 Tbsp. extra-virgin olive oil, divided
-Kosher salt
-Freshly ground black pepper
-1 lb. boneless, skinless chicken breasts
-1/2 tsp. garlic powder
-1/2 tsp. ground ginger
-1 small clove garlic, finely chopped
-Juice of 1 lime
-2 Tbsp. creamy peanut butter
-1 Tbsp. honey
-1 Tbsp. reduced-sodium soy sauce
-1 Tbsp. toasted sesame oil
-4 cup cooked brown rice
-1 avocado, thinly sliced
-2 cup baby spinach
-1 Tbsp. chopped fresh cilantro
-1 tsp. toasted sesame seeds
+- 1 large sweet potato, peeled, cut into 1/2" cubes
+- 1 large red onion, finely chopped
+- 3 Tbsp. extra-virgin olive oil, divided
+- Kosher salt
+- Freshly ground black pepper
+- 1 lb. boneless, skinless chicken breasts
+- 1/2 tsp. garlic powder
+- 1/2 tsp. ground ginger
+- 1 small clove garlic, finely chopped
+- Juice of 1 lime
+- 2 Tbsp. creamy peanut butter
+- 1 Tbsp. honey
+- 1 Tbsp. reduced-sodium soy sauce
+- 1 Tbsp. toasted sesame oil
+- 4 cup cooked brown rice
+- 1 avocado, thinly sliced
+- 2 cup baby spinach
+- 1 Tbsp. chopped fresh cilantro
+- 1 tsp. toasted sesame seeds
 
 ## Instructions
 1. Preheat oven to 425°. On a large baking sheet, toss potatoes and onion with 1 tbsp olive oil; season with salt and pepper. Bake until tender, 20 to 25 minutes.

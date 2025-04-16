@@ -4,18 +4,18 @@ Yield: 6 servings
 Prep time: 30 min
 
 ## Ingredients
-2 tablespoons Ghee or olive oil
-1 small Onion chopped
-2 Carrots peeled and diced
-2 stalks Celery diced
-Salt and Pepper
-1 teaspoon Fresh Thyme
-4 cups Chicken Stock or broth
-1 Bay Leaf
-1 Boneless Skinless Chicken Breast
-2 cups Cauliflower Rice
-2 cups Canned Coconut Milk full fat
-¼ cup Fresh Flat-Leaf Parsley
+- 2 tablespoons Ghee or olive oil
+- 1 small Onion chopped
+- 2 Carrots peeled and diced
+- 2 stalks Celery diced
+- Salt and Pepper
+- 1 teaspoon Fresh Thyme
+- 4 cups Chicken Stock or broth
+- 1 Bay Leaf
+- 1 Boneless Skinless Chicken Breast
+- 2 cups Cauliflower Rice
+- 2 cups Canned Coconut Milk full fat
+- 1/4 cup Fresh Flat-Leaf Parsley
 
 ## Instructions
 1. Melt the ghee in a large soup pot. Add the onion, carrot, and celery. Cook for 5-8 minutes, or until the vegetables begin to soften. Season with salt and pepper and stir in the thyme.

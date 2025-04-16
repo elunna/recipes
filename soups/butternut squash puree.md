@@ -3,14 +3,13 @@
 Yield: 
 
 ## Ingredients
-3 tablespoons clarified butter or ghee
-3 pounds butternut squash, peeled, seeded,
-and cut into large dice (6 cups)
-2 cloves garlic, minced
-1/2 cup coconut milk
-2 cups chicken broth
-1 teaspoon salt
-1/2 teaspoon black pepper
+- 3 tablespoons clarified butter or ghee
+- 3 pounds butternut squash, peeled, seeded, and cut into large dice (6 cups)
+- 2 cloves garlic, minced
+- 1/2 cup coconut milk
+- 2 cups chicken broth
+- 1 teaspoon salt
+- 1/2 teaspoon black pepper
 
 ## Instructions
 1. MELT the butter in a Dutch oven or large pot

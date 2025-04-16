@@ -4,23 +4,22 @@ Yield:
 
 ## Ingredients
 ### FOR THE VINAIGRETTE
-3/4 cup extra-virgin olive oil
-1/4 cup apple cider vinegar
-2 tbsp finely chopped fresh parsley
-1 clove garlic, minced
-Salt and black pepper
+- 3/4 cup extra-virgin olive oil
+- 1/4 cup apple cider vinegar
+- 2 tbsp finely chopped fresh parsley
+- 1 clove garlic, minced
+- Salt and black pepper
 
 
 ### FOR THE SLAW
-1/2 head red cabbage, finely shredded
-1 bunch kale, stems removed, ribbon chopped
-1/2 bell pepper, seeded, ribs removed, and
-cut into very thin strips
-1/2 cup shredded carrots
-1/2 cup julienned apple
-2 tbsp slivered almonds
-1 tsp salt
-1/2 tsp black pepper
+- 1/2 head red cabbage, finely shredded
+- 1 bunch kale, stems removed, ribbon chopped
+- 1/2 bell pepper, seeded, ribs removed, and cut into very thin strips
+- 1/2 cup shredded carrots
+- 1/2 cup julienned apple
+- 2 tbsp slivered almonds
+- 1 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 

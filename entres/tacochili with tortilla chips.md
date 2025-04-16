@@ -4,21 +4,21 @@ Yield: 4 portions
 Prep time: 45 min
 
 ## Ingredients
-125g ground beef
-4 port rice or other grain (preferably whole grain)
-1 yellow onion
-1 tbsp olive oil
-1 dl water
-1 vegetable broth dice
-1 pack pasta sauce with garlic (390g)
-1 for corn (340g) (or roughly half...)
-salt
-pepper
+- 125g ground beef
+- 4 port rice or other grain (preferably whole grain)
+- 1 yellow onion
+- 1 tbsp olive oil
+- 1 dl water
+- 1 vegetable broth dice
+- 1 pack pasta sauce with garlic (390g)
+- 1 for corn (340g) (or roughly half...)
+- salt
+- pepper
 
 For serving
-1 crispsallad
-2 dl crème fraiche
-125g tortilla chips
+- 1 crispsallad
+- 2 dl crème fraiche
+- 125g tortilla chips
 
 ## Instructions
 

@@ -3,12 +3,12 @@
 Yield: 
 
 ## Ingredients
-1 cup tomato paste
-1/2 cup apple cider
-1/2 cup apple cider vinegar
-1 tsp garlic powder
-1/2 tsp salt
-1/8 tsp ground cloves (optional)
+- 1 cup tomato paste
+- 1/2 cup apple cider
+- 1/2 cup apple cider vinegar
+- 1 tsp garlic powder
+- 1/2 tsp salt
+- 1/8 tsp ground cloves (optional)
 
 ## Instructions
 1. HEAT a medium saucepan over medium heat. Add the
@@ -21,14 +21,6 @@ has thickened enough to evenly coat the back of a spoon,
 5 to 8 minutes. Remove from the heat and allow to cool.
 Serve when cool, or store refrigerated in an air-tight con-
 tainer; itll keep for up to 2 weeks.
-3. 
-4. 
-5. 
-6. 
-7. 
-8. 
-9. 
-10. 
 
 ## Notes
 Don’t expect the familiar “Heinz 57”

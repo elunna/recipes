@@ -3,13 +3,13 @@
 Yield: 
 
 ## Ingredients
-1 white tea bag
-1 ginger tea bag
-1 cup boiling water
-1/4 cup halved white grapes
-1/4 cup golden delicious apple, diced
-8 oz sparkling water
-Lemon slices
+- 1 white tea bag
+- 1 ginger tea bag
+- 1 cup boiling water
+- 1/4 cup halved white grapes
+- 1/4 cup golden delicious apple, diced
+- 8 oz sparkling water
+- Lemon slices
 
 ## Instructions
 1. HEAT 1 cup of water to boiling, let it cool for

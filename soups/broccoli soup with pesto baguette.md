@@ -4,17 +4,17 @@ Yield:
 Prep time: 30 min
 
 ## Ingredients
-10 dl vegetable broth (water and dice or fund)
-2 1/2 dl whipped cream
-1/2 tsk dried thyme
-1 baking potatoes (~250g)
-400g broccoli
-salt
-pepper
-300g baguette
-2 tomatoes
-1 for mozzarella (125g)
-1/2 dl basil pesto
+- 10 dl vegetable broth (water and dice or fund)
+- 2 1/2 dl whipped cream
+- 1/2 tsk dried thyme
+- 1 baking potatoes (~250g)
+- 400g broccoli
+- salt
+- pepper
+- 300g baguette
+- 2 tomatoes
+- 1 for mozzarella (125g)
+- 1/2 dl basil pesto
 
 
 ## Instructions

@@ -3,18 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-4 medium zucchini (about 4 cup
-of “noodles”)
-2 tbsp cooking fat
-1/4 onion, finely chopped
-2 cloves garlic, minced
-1 lb large shrimp, peeled
-and deveined
-1 tsp salt
-1/2 tsp black pepper
-2 tsp chopped fresh
-parsley leaves
-Romesco Sauce (page 318)
+- 4 medium zucchini (about 4 cup of “noodles”)
+- 2 tbsp cooking fat
+- 1/4 onion, finely chopped
+- 2 cloves garlic, minced
+- 1 lb large shrimp, peeled and deveined
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 2 tsp chopped fresh parsley leaves
+- Romesco Sauce (page 318)
 
 ## Instructions
 1. PEEL the zucchini with a regular peeler. Then, using a juli-

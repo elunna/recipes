@@ -3,18 +3,17 @@
 Yield: 
 
 ## Ingredients
-2 tsp paprika
-1 tsp chili powder
-1 tsp garlic powder
-1 tsp onion powder
-1 tsp salt
-1/2 tsp black pepper
-1/2 lime, juiced
-1 1/2 lb pork shoulder (boneless)
-1 butternut squash, 1-inch diced
-1 bunch kale, stems removed, leaves
-chopped
-1 cup diced tomatoes
+- 2 tsp paprika
+- 1 tsp chili powder
+- 1 tsp garlic powder
+- 1 tsp onion powder
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 1/2 lime, juiced
+- 1 1/2 lb pork shoulder (boneless)
+- 1 butternut squash, 1-inch diced
+- 1 bunch kale, stems removed, leaves chopped
+- 1 cup diced tomatoes
 
 ## Instructions
 1. PREHEAT the oven to 300°F.

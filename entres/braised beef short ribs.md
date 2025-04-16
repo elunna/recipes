@@ -3,14 +3,14 @@
 Yield: 
 
 ## Ingredients
-3 tsp salt
-2 tsp black pepper
-3 lb beef short ribs, trimmed
-4 to 6 tbsp cooking fat
-1 onion, quartered
-6 cloves garlic, peeled
-4 sprigs fresh thyme
-2 cup apple cider
+- 3 tsp salt
+- 2 tsp black pepper
+- 3 lb beef short ribs, trimmed
+- 4 to 6 tbsp cooking fat
+- 1 onion, quartered
+- 6 cloves garlic, peeled
+- 4 sprigs fresh thyme
+- 2 cup apple cider
 
 ## Instructions
 1. MIX 2 tsp of the salt and all the pepper

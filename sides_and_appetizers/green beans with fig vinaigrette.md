@@ -4,22 +4,22 @@ Yield:
 
 ## Ingredients
 ### FIG VINAIGRETTE
-1/4 cup white wine vinegar or champagne vinegar
-1/4 cup balsamic vinegar
-1/2 tsp mustard powder
-1 clove garlic, minced
-3/4 cup extra-virgin olive oil
-1/4 cup dried figs, finely chopped (5 to 6 figs)
-2 tsp minced fresh thyme leaves
-1/2 tsp salt
-1/2 tsp black pepper
+- 1/4 cup white wine vinegar or champagne vinegar
+- 1/4 cup balsamic vinegar
+- 1/2 tsp mustard powder
+- 1 clove garlic, minced
+- 3/4 cup extra-virgin olive oil
+- 1/4 cup dried figs, finely chopped (5 to 6 figs)
+- 2 tsp minced fresh thyme leaves
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ### GREEN BEANS
-2 cup ice
-2 tbsp salt
-1 lb green beans, trimmed
-2 tbsp cooking fat
-1/4 cup slivered almonds
+- 2 cup ice
+- 2 tbsp salt
+- 1 lb green beans, trimmed
+- 2 tbsp cooking fat
+- 1/4 cup slivered almonds
 
 
 ## Instructions

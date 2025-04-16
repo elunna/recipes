@@ -3,15 +3,14 @@
 Yield: 
 
 ## Ingredients
-2 tablespoons cooking fat
-2 large-diced peeled sweet potatoes
-1/2 teaspoon ground ginger (or
-2 tablespoons minced fresh ginger)
-1 pinch ground cinnamon, plus extra
-for garnish
-1 cup full-fat coconut milk
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+- 2 tablespoons cooking fat
+- 2 large-diced peeled sweet potatoes
+- 1/2 teaspoon ground ginger (or
+- 2 tablespoons minced fresh ginger)
+- 1 pinch ground cinnamon, plus extra for garnish
+- 1 cup full-fat coconut milk
+- 1/2 teaspoon salt
+- 1/4 teaspoon black pepper
 
 ## Instructions
 1. IN a Dutch oven or large pot, heat the cooking fat over

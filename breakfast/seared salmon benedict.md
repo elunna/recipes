@@ -3,13 +3,13 @@
 Yield: 2 servings
 
 ## Ingredients
-2 salmon fillets (5 oz each), skin removed
-1 tsp salt
-1/2 tsp black pepper
-3 tbsp cooking fat
-2 large eggs, poached (see page 150)
-2 cup Hollandaise (page 314)
-1 pinch cayenne pepper
+- 2 salmon fillets (5 oz each), skin removed
+- 1 tsp salt
+- 1/2 tsp black pepper
+- 3 tbsp cooking fat
+- 2 large eggs, poached (see page 150)
+- 2 cup Hollandaise (page 314)
+- 1 pinch cayenne pepper
 
 ## Instructions
 1. PREHEAT the oven to 350°F.

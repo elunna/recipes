@@ -4,13 +4,13 @@ Yield: 6 servings
 Prep time: 30min
 
 ## Ingredients
-3 lbs. yukon gold potatoes
-4 tbsp. ghee
-4 cloves garlic, minced
-approx. 1 cup chicken stock or vegetable stock
-3/4 cup unsweetened, full fat coconut milk 
-Kosher salt, to taste
-black pepper, to taste
+- 3 lbs. yukon gold potatoes
+- 4 tbsp. ghee
+- 4 cloves garlic, minced
+- approx. 1 cup chicken stock or vegetable stock
+- 3/4 cup unsweetened, full fat coconut milk 
+- Kosher salt, to taste
+- black pepper, to taste
 
 ## Instructions
 

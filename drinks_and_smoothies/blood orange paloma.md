@@ -3,22 +3,19 @@
 Yield: 
 
 ## Ingredients
-1 blood orange, juiced
-1/2 lime, juiced
-12 oz sparkling water
+- 1 blood orange, juiced
+- 1/2 lime, juiced
+- 12 oz sparkling water
 
 ## Instructions
 1. ADD the blood orange and lime into a glass.
 2. Top with ice and the sparkling water.
 
 ## Notes
-
 Serving this at a fancy gathering? Garnish with a
 grapefruit or lime wedge. To add another dimension
 to this mocktail, try adding fresh squeezed grapefruit
 juice; it pairs nicely with the blood orange and lime.
-
-
 
 STORE YOUR BLOOD ORANGES in the fridge—
 they'll last up to two weeks, compared to just a few

@@ -4,11 +4,11 @@ Yield: 6 servings
 Prep time: 15 min
 
 ## Ingredients
-1/3 cup extra-virgin olive oil, plus more for brushing
-2 small oranges, cut in half, then into 1/2-inch slices
-Kosher salt
-3 to 4 strips thick-cut bacon, cut into 1/4-inch pieces (1 cup)
-1 1/2 lb brussels sprouts, trimmed and halved
+- 1/3 cup extra-virgin olive oil, plus more for brushing
+- 2 small oranges, cut in half, then into 1/2-inch slices
+- Kosher salt
+- 3 to 4 strips thick-cut bacon, cut into 1/4-inch pieces (1 cup)
+- 1 1/2 lb brussels sprouts, trimmed and halved
 
 ## Instructions
 1. Preheat oven to 425 degrees. Brush a rimmed baking sheet generously with oil. Add oranges, in a single layer, turning to coat. Season with salt and drizzle with 1 tbsp oil; roast 15 minutes. Add bacon and roast until crisp, about 12 minutes.

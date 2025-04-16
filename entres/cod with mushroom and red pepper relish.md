@@ -3,17 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-1 lb cod
-1/2 tsp salt
-1/4 tsp black pepper
-2 tbsp cooking fat
-1/4 onion, finely chopped
-2 tsp grated fresh ginger
-(or 1/2 tsp ground ginger)
-2 cloves garlic, minced
-1 pt (2 cup) button, cremini, or
-portabella mushrooms, sliced
-1 cup roasted red peppers, chopped
+- 1 lb cod
+- 1/2 tsp salt
+- 1/4 tsp black pepper
+- 2 tbsp cooking fat
+- 1/4 onion, finely chopped
+- 2 tsp grated fresh ginger (or 1/2 tsp ground ginger)
+- 2 cloves garlic, minced
+- 1 pt (2 cup) button, cremini, or portabella mushrooms, sliced
+- 1 cup roasted red peppers, chopped
 
 
 ## Instructions

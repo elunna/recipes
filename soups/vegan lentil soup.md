@@ -4,17 +4,17 @@ Yield: 4 servings
 Prep time: 20 min
 
 ## Ingredients
-2 tablespoons extra-virgin olive oil, plus more for drizzling
-½ cup chopped shallot
-½ cup chopped carrot
-½ cup chopped celery
-½ teaspoon ground cumin
-½ teaspoon ground coriander
-Kosher salt and freshly ground pepper
-1 cup dried French lentils
-1 can (15 ounces) crushed tomatoes
-4 cups chopped broccoli rabe
-2 teaspoons red-wine vinegar
+- 2 tablespoons extra-virgin olive oil, plus more for drizzling
+- ½ cup chopped shallot
+- ½ cup chopped carrot
+- ½ cup chopped celery
+- ½ teaspoon ground cumin
+- ½ teaspoon ground coriander
+- Kosher salt and freshly ground pepper
+- 1 cup dried French lentils
+- 1 can (15 ounces) crushed tomatoes
+- 4 cups chopped broccoli rabe
+- 2 teaspoons red-wine vinegar
 
 ## Instructions
 1. Heat oil in a pot over medium-high. Add shallot, carrot, celery, cumin, coriander, and a pinch of salt. Cook, stirring, until vegetables have softened, 4 to 6 minutes.

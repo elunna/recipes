@@ -3,17 +3,17 @@
 Yield: 
 
 ## Ingredients
-1 1/2 tbsp orange juice
-1 1/2 tbsp lemon juice
-1 1/2 tbsp lime juice
-2 cloves garlic, minced
-2 tsp mustard powder
-3/4 cup extra-virgin olive oil
-1 tsp fresh thyme leaves
-1 tsp minced fresh cilantro
-1 tsp minced fresh parsley
-1/2 tsp salt
-1/2 tsp black pepper
+- 1 1/2 tbsp orange juice
+- 1 1/2 tbsp lemon juice
+- 1 1/2 tbsp lime juice
+- 2 cloves garlic, minced
+- 2 tsp mustard powder
+- 3/4 cup extra-virgin olive oil
+- 1 tsp fresh thyme leaves
+- 1 tsp minced fresh cilantro
+- 1 tsp minced fresh parsley
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. WHISK together the orange juice, lemon juice,

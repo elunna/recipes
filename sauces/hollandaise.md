@@ -3,13 +3,11 @@
 Yield: 
 
 ## Ingredients
-
-1 1/2 cup clarified unsalted butter or ghee
-4 large egg yolks
-2 tbsp lemon juice
-1 tsp salt
-1/8 tsp cayenne pepper (optional)
-
+- 1 1/2 cup clarified unsalted butter or ghee
+- 4 large egg yolks
+- 2 tbsp lemon juice
+- 1 tsp salt
+- 1/8 tsp cayenne pepper (optional)
 
 ## Instructions
 1. IN a medium saucepan over low heat, melt the butter or

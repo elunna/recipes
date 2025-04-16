@@ -1,11 +1,10 @@
 # Bacon-Wrapped Prunes
 ---
 Yield: 8 servings
-Prep time:
 
 ## Ingredients
-8 slices bacon, cut into thirds
-24 prunes, pitted
+- 8 slices bacon, cut into thirds
+- 24 prunes, pitted
 
 ## Instructions
 1. Preheat oven to 400 degrees. Line a large rimmed baking sheet with foil. Wrap bacon pieces around prunes and secure with toothpicks. Bake on sheet until bacon is browned, about 15 minutes, flipping halfway through. Serve warm.

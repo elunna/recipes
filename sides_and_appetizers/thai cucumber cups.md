@@ -3,23 +3,20 @@
 Yield: 2 servings
 
 ## Ingredients
-2 cloves garlic, minced
-1 tbsp minced fresh ginger
-1/2 jalapefio, seeded and minced
-Grated zest and juice of 2 limes
-1/2 cup + 2 tbsp extra-virgin olive oil
-1/4 tsp salt
-1/4 tsp black pepper
-1/2 cup cashews
-1 cup roughly chopped button, cremini,
-or portabella mushrooms
-1/4 cup finely diced red, yellow, or
-orange bell pepper
-2 tbsp thinly sliced green onion
-1 lb ground turkey
-4 cucumbers, hollowed into cup (see below)
-2 tbsp chopped fresh cilantro
-
+- 2 cloves garlic, minced
+- 1 tbsp minced fresh ginger
+- 1/2 jalapefio, seeded and minced
+- Grated zest and juice of 2 limes
+- 1/2 cup + 2 tbsp extra-virgin olive oil
+- 1/4 tsp salt
+- 1/4 tsp black pepper
+- 1/2 cup cashews
+- 1 cup roughly chopped button, cremini, or portabella mushrooms
+- 1/4 cup finely diced red, yellow, or orange bell pepper
+- 2 tbsp thinly sliced green onion
+- 1 lb ground turkey
+- 4 cucumbers, hollowed into cup (see below)
+- 2 tbsp chopped fresh cilantro
 
 ## Instructions
 1. TO prepare the dressing, whisk together the garlic, ginger,

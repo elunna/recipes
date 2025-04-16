@@ -4,17 +4,16 @@ Yield:
 
 ## Ingredients
 ### FOR THE GLAZE
-1/2 cup apple cider
-Grated zest and juice of 2 lemons
-Juice of 1 orange
-1/2 tbsp grated fresh ginger
-(or 1/2 tsp ground ginger)
+- 1/2 cup apple cider
+- Grated zest and juice of 2 lemons
+- Juice of 1 orange
+- 1/2 tbsp grated fresh ginger (or 1/2 tsp ground ginger)
 
 ### FOR THE FISH
-3 tbsp cooking fat
-2 halibut fillets (5 oz each)
-1 tsp salt
-1/2 tsp black pepper
+- 3 tbsp cooking fat
+- 2 halibut fillets (5 oz each)
+- 1 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. PREHEAT the oven to 400°F.

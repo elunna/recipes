@@ -4,13 +4,13 @@ Yield: 2 loaves
 Prep time: 50 min
 
 ## Ingredients
-2 cup warm water
-1 tbsp yeast
-1 tbsp vegetable oil
-1 tbsp sugar
-2 tsp salt
-5 - 5 1/2 cup bread flour
-
+- 2 cup warm water
+- 1 tbsp yeast
+- 1 tbsp vegetable oil
+- 1 tbsp sugar
+- 2 tsp salt
+- 5 - 5 1/2 cup bread flour
+ 
 ## Instructions
 1. Dissolve yeast in warm water (110 degrees) and sugar in large bowl; allow yeast to proof or foam (about 10 minutes).
 2. Add salt, oil, and 3 cup flour; beat for 2 minutes.

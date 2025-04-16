@@ -3,14 +3,13 @@
 Yield: 
 
 ## Ingredients
-2 medium beets
-2 tbsp extra-virgin olive oil
-1 tbsp balsamic vinegar
-1 orange, halved, one half zested and
-1/2 tsp salt
-1/4 tsp black pepper
-1 avocado, split lengthwise, pitted,
-peeled, and diced
+- 2 medium beets
+- 2 tbsp extra-virgin olive oil
+- 1 tbsp balsamic vinegar
+- 1 orange, halved, one half zested and juiced
+- 1/2 tsp salt
+- 1/4 tsp black pepper
+- 1 avocado, split lengthwise, pitted, peeled, and diced
 
 ## Instructions
 1. PREHEAT the oven to 425°F.
@@ -25,8 +24,6 @@ If it goes in easily, the beets are done. If there’s resistance,
 close them back up and put back into the oven for 10
 minutes. Repeat until the knife slides into the center of the
 beet easily. Let rest until cool enough to handle.
-
-
 3. REMOVE the skin from the beets—you may want to wear
 gloves and an apron, as beet juice will stain your skin and
 clothes. Dice the beets into l-inch pieces and place ina

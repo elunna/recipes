@@ -4,19 +4,19 @@ Yield: 4 servings
 Prep time: 10 min
 
 ## Ingredients
-1 Tbsp. vegetable oil
-1 garlic clove, finely chopped
-1 Tbsp. finely chopped peeled ginger
-1 lb. ground pork
-1 Tbsp. toasted sesame oil
-1/4 head of green cabbage, thinly sliced
-1/2 yellow onion, thinly sliced
-1 cup shredded carrot
-1/4 cup reduced-sodium soy sauce
-1 Tbsp. sriracha
-Kosher salt
-1 scallion, thinly sliced
-1 Tbsp. toasted sesame seeds
+- 1 Tbsp. vegetable oil
+- 1 garlic clove, finely chopped
+- 1 Tbsp. finely chopped peeled ginger
+- 1 lb. ground pork
+- 1 Tbsp. toasted sesame oil
+- 1/4 head of green cabbage, thinly sliced
+- 1/2 yellow onion, thinly sliced
+- 1 cup shredded carrot
+- 1/4 cup reduced-sodium soy sauce
+- 1 Tbsp. sriracha
+- Kosher salt
+- 1 scallion, thinly sliced
+- 1 Tbsp. toasted sesame seeds
 
 ## Instructions
 1. In a large skillet over medium heat, heat vegetable oil. Add garlic and ginger and cook, stirring, until fragrant, about 1 minute.

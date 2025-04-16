@@ -3,31 +3,21 @@
 Yield: 2 cup
 
 ## Ingredients
-1 jar (16 oz) roasted red peppers, drained
-1/4 cup extra-virgin olive oil
-1/4 onion, roughly chopped
-2 cloves garlic, minced
-2 tbsp chopped fresh parsley
-1 tbsp capers, drained
-Juice of 1/2 lemon
-1/2 tsp salt
-1/2 tsp black pepper
+- 1 jar (16 oz) roasted red peppers, drained
+- 1/4 cup extra-virgin olive oil
+- 1/4 onion, roughly chopped
+- 2 cloves garlic, minced
+- 2 tbsp chopped fresh parsley
+- 1 tbsp capers, drained
+- Juice of 1/2 lemon
+- 1/2 tsp salt
+- 1/2 tsp black pepper
 
 ## Instructions
 1. COMBINE all ingredients in a food processor
 and pulse 5 to 10 times to combine, then blend
 on high speed until smooth.
 2. STORE in the refrigerator for up to 5 days.
-3. 
-4. 
-5. 
-6. 
-7. 
-8. 
-9. 
-10. 
-
-
 
 YOU COULD easily change the flavor of
 this sauce by substituting the same amount of

@@ -4,22 +4,21 @@ Yield:
 
 ## Ingredients
 ### Rice and veggies
-
-1 1/4 cup short-grain brown rice or long-grain brown rice, rinsed
-1 1/2 cup frozen shelled edamame, preferably organic
-1 1/2 cup trimmed and roughly chopped snap peas or snow peas, or thinly sliced broccoli florets
-1 to 2 tbsp reduced-sodium tamari or soy sauce, to taste
-4 cup chopped red cabbage or spinach or romaine lettuce or kale (ribs removed)
-2 ripe avocados, halved, pitted and thinly sliced into long strips (wait to slice just before serving, see details in step 5)
+- 1 1/4 cup short(or long)-grain brown rice, rinsed
+- 1 1/2 cup frozen shelled edamame, preferably organic
+- 1 1/2 cup trimmed and roughly chopped snap peas or snow peas, or thinly sliced broccoli florets
+- 1-2 tbsp reduced-sodium tamari or soy sauce, to taste
+- 4 cup chopped red cabbage/spinach/romaine/kale (ribs removed)
+- 2 ripe avocados, halved, pitted and thinly sliced into long strips (wait to slice just before serving, see details in step 5)
 
 ### Essential garnishes
-1 small cucumber, very thinly sliced
-Carrot ginger dressing*
-Thinly sliced green onion (about 1/2 small bunch)
-Lime wedges
-Toasted sesame oil, for drizzling
-Sesame seeds
-Flaky sea salt
+- 1 small cucumber, very thinly sliced
+- Carrot ginger dressing
+- Thinly sliced green onion (about 1/2 small bunch)
+- Lime wedges
+- Toasted sesame oil, for drizzling
+- Sesame seeds
+- Flaky sea salt
 
 ## Instructions
 1. Bring a large pot of water to boil (ideally about 4 qt water). Once the water is boiling, add the rice and continue boiling for 25 minutes. Add the edamame and cook for 3 more minutes (it’s ok if the water doesn’t reach a rapid boil again). Then add the snap peas and cook for 2 more minutes.
@@ -31,9 +30,9 @@ Flaky sea salt
 
 ## Notes
 
-*Carrot ginger dressing note: You’re probably only going to need 1/2 batch of the dressing for 4 bowls. I recommend making the full batch since blenders require a decent volume of liquid to blend. Just use the leftover dressing on salads within 1 to 2 weeks of making.
+Carrot ginger dressing note: You’re probably only going to need 1/2 batch of the dressing for 4 bowls. I recommend making the full batch since blenders require a decent volume of liquid to blend. Just use the leftover dressing on salads within 1 to 2 weeks of making.
 
-*Make it quick: If you’re in a hurry, you can skip the dressing and drizzle tamari and toasted sesame oil lightly over the bowls instead.
+Make it quick: If you’re in a hurry, you can skip the dressing and drizzle tamari and toasted sesame oil lightly over the bowls instead.
 
 Make it vegan: Be sure to follow the vegan option while making the carrot-ginger dressing.
 

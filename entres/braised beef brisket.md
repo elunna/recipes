@@ -3,14 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-1 tbsp salt
-1 tsp black pepper
-1 1/2 lb beef brisket, trimmed
-3 tbsp cooking fat
-1/2 medium onion, peeled and quartered
-4 cloves garlic, peeled
-2 sprigs fresh thyme
-5 cup Beef Bone Broth (page 178) or water
+- 1 tbsp salt
+- 1 tsp black pepper
+- 1 1/2 lb beef brisket, trimmed
+- 3 tbsp cooking fat
+- 1/2 medium onion, peeled and quartered
+- 4 cloves garlic, peeled
+- 2 sprigs fresh thyme
+- 5 cup Beef Bone Broth (page 178) or water
 
 ## Instructions
 1. PREHEAT the oven to 350°F.

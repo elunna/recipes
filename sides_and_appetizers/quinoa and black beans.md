@@ -4,18 +4,18 @@ Yield: 4 servings
 Prep time: 30 min
 
 ## Ingredients
-2 tbsp canola oil
-1 medium onion, finely chopped
-1 medium sweet red pepper, finely chopped
-1 celery rib, finely chopped
-2 tsp chili powder
-1/4 tsp salt
-1/4 tsp pepper
-2 cup vegetable stock
-1 cup frozen corn
-1 cup quinoa, rinsed
-1 can (15 oz) black beans, rinsed and drained
-1/3 cup plus 2 tbsp minced fresh cilantro, divided
+- 2 tbsp canola oil
+- 1 medium onion, finely chopped
+- 1 medium sweet red pepper, finely chopped
+- 1 celery rib, finely chopped
+- 2 tsp chili powder
+- 1/4 tsp salt
+- 1/4 tsp pepper
+- 2 cup vegetable stock
+- 1 cup frozen corn
+- 1 cup quinoa, rinsed
+- 1 can (15 oz) black beans, rinsed and drained
+- 1/3 cup plus 2 tbsp minced fresh cilantro, divided
 
 ## Instructions
 1. In a large skillet, heat oil over medium-high heat. Add onion, red pepper, celery and seasonings; cook and stir 5-7 minutes or until vegetables are tender.

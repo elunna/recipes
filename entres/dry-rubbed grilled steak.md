@@ -3,17 +3,16 @@
 Yield: 
 
 ## Ingredients
-3 tbsp salt
-2 tbsp paprika
-2 tsp dried oregano
-2 tsp ground mustard
-2 tsp onion powder
-2 tsp black pepper
-1 tsp ground turmeric
-1 tsp garlic powder
-1/4 tsp cayenne pepper
-4 steaks (5 to 8 oz each) for grilling
-(sirloin, strip, rib eye, tenderloin)
+- 3 tbsp salt
+- 2 tbsp paprika
+- 2 tsp dried oregano
+- 2 tsp ground mustard
+- 2 tsp onion powder
+- 2 tsp black pepper
+- 1 tsp ground turmeric
+- 1 tsp garlic powder
+- 1/4 tsp cayenne pepper
+- 4 steaks (5 to 8 oz each) for grilling (sirloin, strip, rib eye, tenderloin)
 
 ## Instructions
 1. TO make the dry rub, mix all the seasonings

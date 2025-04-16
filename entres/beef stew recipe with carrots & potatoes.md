@@ -3,24 +3,24 @@
 Yield: Servings: 6
 
 ## Ingredients
-3 lb boneless beef chuck (well-marbled), cut into 11/2-inch pieces
-2 tsp salt
-1 tsp freshly ground black pepper
-3 tbsp olive oil
-2 medium yellow onions, cut into 1-inch chunks
-7 cloves garlic, peeled and smashed
-2 tbsp balsamic vinegar
-11/2 tbsp tomato paste
-1/4 cup all-purpose flour
-2 cup dry red wine
-2 cup beef broth
-2 cup water
-1 bay leaf
-1/2 tsp dried thyme
-11/2 tsp sugar
-4 large carrots, peeled and cut into 1-inch chunks on a diagonal
-1 lb small white boiling potatoes (baby yukons), cut in half
-Fresh chopped parsley, for serving (optional)
+- 3 lb boneless beef chuck (well-marbled), cut into 11/2-inch pieces
+- 2 tsp salt
+- 1 tsp freshly ground black pepper
+- 3 tbsp olive oil
+- 2 medium yellow onions, cut into 1-inch chunks
+- 7 cloves garlic, peeled and smashed
+- 2 tbsp balsamic vinegar
+- 1 1/2 tbsp tomato paste
+- 1/4 cup all-purpose flour
+- 2 cup dry red wine
+- 2 cup beef broth
+- 2 cup water
+- 1 bay leaf
+- 1/2 tsp dried thyme
+- 1 1/2 tsp sugar
+- 4 large carrots, peeled and cut into 1-inch chunks on a diagonal
+- 1 lb small white boiling potatoes (baby yukons), cut in half
+- Fresh chopped parsley, for serving (optional)
 
 ## Instructions
 1. Preheat the oven to 325°F and set a rack in the lower middle position.

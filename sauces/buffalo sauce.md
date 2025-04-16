@@ -3,11 +3,11 @@
 Yield: 
 
 ## Ingredients
-1/2 cup coconut oil
-1/2 cup ghee or clarified butter
-1 cup hot sauce
-2 tbsp apple cider vinegar
-1 clove garlic, minced
+- 1/2 cup coconut oil
+- 1/2 cup ghee or clarified butter
+- 1 cup hot sauce
+- 2 tbsp apple cider vinegar
+- 1 clove garlic, minced
 
 ## Instructions
 1. IN a small saucepan, gently melt the coconut oil and ghee

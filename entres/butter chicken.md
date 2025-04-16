@@ -1,34 +1,29 @@
 # Babzy's Butter Chicken
 ---
 Yield: 4 servings
-Category:
 Prep time: 25mins
-Rating:
-Source:
-URL:
-Image: 
 
 ## Ingredients
-2 tbsp butter (sm�r)
-1 onion, chopped (l�k)
-2 garlic cloves, crushed (vitl�ksklyftor)
-3-4 boneless chicken breasts (kycklingbr�st)
-1/2 tsp ground ginger (mald ingef�ra)
-1/2 tsp cumin (kummin)
-1/4 tsp cayenne pepper (cayenpeppar)
-1 tsp tumeric (gurkmeja)
-1/2 tsp cinnamon (kanel)
-1 tsp salt
-2 1/3 dl cream (matlagnings gr�dde) 13%
-390g tomato sauce (passerade tomater)
-1/2 dl turkish yogurt
-1 tsp garam masala
+- 2 tbsp butter
+- 1 onion, chopped
+- 2 garlic cloves, crushed
+- 3-4 boneless chicken breasts
+- 1/2 tsp ground ginger
+- 1/2 tsp cumin
+- 1/4 tsp cayenne pepper
+- 1 tsp tumeric
+- 1/2 tsp cinnamon
+- 1 tsp salt
+- 2 1/3 dl cream 13%
+- 390g tomato sauce
+- 1/2 dl greek yogurt
+- 1 tsp garam masala
 
 Also: 
-naan bread
-cilantro (koriander)
-mango chutney
-cilantro-lime rice
+- naan bread
+- cilantro
+- mango chutney
+- cilantro-lime rice
 
 ## Instructions
 1. In a large saucepan, saute onion and garlic in butter, until onions are soft.

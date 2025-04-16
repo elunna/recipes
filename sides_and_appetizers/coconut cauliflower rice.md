@@ -3,15 +3,14 @@
 Yield: 
 
 ## Ingredients
-
-1 head cauliflower, cut into florets
-2 tbsp coconut oil, ghee, or clarified butter
-1/4 onion, finely chopped
-1 cup coconut milk
-1/4 cup shredded coconut flakes
-1/2 tsp salt
-1/4 tsp black pepper
-1 tbsp finely chopped cilantro
+- 1 head cauliflower, cut into florets
+- 2 tbsp coconut oil, ghee, or clarified butter
+- 1/4 onion, finely chopped
+- 1 cup coconut milk
+- 1/4 cup shredded coconut flakes
+- 1/2 tsp salt
+- 1/4 tsp black pepper
+- 1 tbsp finely chopped cilantro
 
 ## Instructions
 1. TO “rice” the cauliflower florets, pulse in a food

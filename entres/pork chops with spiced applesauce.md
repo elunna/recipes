@@ -3,18 +3,17 @@
 Yield: 2 servings
 
 ## Ingredients
-1 tsp salt
-1 tsp black pepper
-2 bone-in pork chops (about
-1 lb total)
-3 tbsp cooking fat
-1 onion, sliced
-2 apples, peeled, cored and diced
-1/2 cup apple cider
-1/2 tsp ground ginger
-1/2 tsp allspice
-1 pinch nutmeg
-2 generous handfuls frisée
+- 1 tsp salt
+- 1 tsp black pepper
+- 2 bone-in pork chops (about 1 lb total)
+- 3 tbsp cooking fat
+- 1 onion, sliced
+- 2 apples, peeled, cored and diced
+- 1/2 cup apple cider
+- 1/2 tsp ground ginger
+- 1/2 tsp allspice
+- 1 pinch nutmeg
+- 2 generous handfuls frisée
 
 ## Instructions
 1. PREHEAT the oven to 350°F.

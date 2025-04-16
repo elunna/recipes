@@ -1,25 +1,19 @@
 # Classic swedish waffles (Väfflor)
 ---
 Yield: 8 waffles
-Category:
-Prep time:
-Rating:
-Source:
-URL:
-Image: 
 
 ## Ingredients
-3.5 dl flour
-3 tsp baking powder
-1 pinch salt
-2 tbsp sugar
-4 dl milk
-2 eggs
-100 gr butter (melted)
+- 3.5 dl flour
+- 3 tsp baking powder
+- 1 pinch salt
+- 2 tbsp sugar
+- 4 dl milk
+- 2 eggs
+- 100 gr butter (melted)
 
 For cream:
-Vispegrädde
-vanilla powder
+- Vispegrädde
+- vanilla powder
 
 ## Instructions
 1. Add milk to dry mix while stirring.

@@ -4,12 +4,12 @@ Yield: 8-10 cup
 Prep time: 25 min
 
 ## Ingredients
-5 lb Yukon Gold potatoes, cut into 1 1/2-inch pieces
-Kosher salt and freshly ground pepper
-4 garlic cloves, peeled and smashed
-1 1/2 cup whole milk
-1 stick unsalted butter, plus more for serving
-3 sprigs fresh thyme
+- 5 lb Yukon Gold potatoes, cut into 1 1/2-inch pieces
+- Kosher salt and freshly ground pepper
+- 4 garlic cloves, peeled and smashed
+- 1 1/2 cup whole milk
+- 1 stick unsalted butter, plus more for serving
+- 3 sprigs fresh thyme
 
 ## Instructions
 1. Place potatoes in a large pot with 2 tbsp salt and garlic. Add water to cover by 1 inch and bring to a boil. Then reduce heat to medium and simmer until potatoes are tender and can be pierced easily with a fork, 12 to 15 minutes.

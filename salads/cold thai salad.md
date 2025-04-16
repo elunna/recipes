@@ -3,13 +3,13 @@
 Yield: 
 
 ## Ingredients
-2 small zucchini
-1 small cucumber
-2 carrots, peeled and shredded
-1/2 cup mung bean sprouts (optional)
-1/4 cup chopped cashews
-1/4 cup chopped fresh cilantro
-1/2 cup Sunshine Sauce (page 320)
+- 2 small zucchini
+- 1 small cucumber
+- 2 carrots, peeled and shredded
+- 1/2 cup mung bean sprouts (optional)
+- 1/4 cup chopped cashews
+- 1/4 cup chopped fresh cilantro
+- 1/2 cup Sunshine Sauce (page 320)
 
 ## Instructions
 1. PEEL the zucchini with a regular peeler. Then, using a

@@ -4,17 +4,16 @@ Yield: 2 cup
 Prep time: 30 min
 
 ## Ingredients
-
-1 tbsp cooking fat
-1/2 inion, diced
-1 1/2 tsp minced fresh ginger
-1 clove garlic, minced
-1 1/2 tsp yellow curry powder
-1/2 tsp red curry powder (or cayenne pepper for spice)
-2 cup full-fat coconut milk
-grated zest and juice of 1/2 lime
-1/2 tsp salt
-pinch of pepper
+- 1 tbsp cooking fat
+- 1/2 onion, diced
+- 1 1/2 tsp minced fresh ginger
+- 1 clove garlic, minced
+- 1 1/2 tsp yellow curry powder
+- 1/2 tsp red curry powder (or cayenne pepper for spice)
+- 2 cup full-fat coconut milk
+- grated zest and juice of 1/2 lime
+- 1/2 tsp salt
+- pinch of pepper
 
 ## Instructions
 1. Heat the cooking fat in a medium skillet over medium heat. When the fta is hot, add onion and cook until translucent, 2-3 min. Add the ginger nd cook for 1 min, stirring quickly. Add garlic and cook for ~1 min while continuing to stir.

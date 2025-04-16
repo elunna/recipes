@@ -4,16 +4,15 @@ Yield:
 Prep time: 30 min
 
 ## Ingredients
-4 port rice or other grain (preferably whole grain)
-
-1 whole peeled tomatoes (390g)
-2 1/2 dl cooking cream
-1 seafood or fish broth dice
-600g Alaska pollock
-200g sugar peas
-20g fresh or frozen dill (~2 tbsp)
-salt
-pepper
+- 4 port rice or other grain (preferably whole grain)
+- 1 whole peeled tomatoes (390g)
+- 2 1/2 dl cooking cream
+- 1 seafood or fish broth dice
+- 600g Alaska pollock
+- 200g sugar peas
+- 20g fresh or frozen dill (~2 tbsp)
+- salt
+- pepper
 
 ## Instructions
 

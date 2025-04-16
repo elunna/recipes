@@ -3,13 +3,12 @@
 Yield: 
 
 ## Ingredients
-2 tbsp cooking fat
-1/4 onion, finely chopped
-1 clove garlic, minced
-3/4 lb (21 to 25) raw shrimp, peeled and
-deveined
-2 cup cherry or grape tomatoes, cut in half
-1 cup Pesto (page 315)
+- 2 tbsp cooking fat
+- 1/4 onion, finely chopped
+- 1 clove garlic, minced
+- 3/4 lb (21 to 25) raw shrimp, peeled and deveined
+- 2 cup cherry or grape tomatoes, cut in half
+- 1 cup Pesto (page 315)
 
 ## Instructions
 1. HEAT the cooking fat in a large skillet over
