@@ -3,22 +3,22 @@
 Yield: 
 
 ## Ingredients
-2 cups ice
-2 tablespoons plus 1/4 teaspoon salt
-1 pound green beans, ends trimmed
-3 tablespoons clarified butter, ghee, or
+2 cup ice
+2 tbsp plus 1/4 tsp salt
+1 lb green beans, ends trimmed
+3 tbsp clarified butter, ghee, or
 coconut oil
 1/2 cup thinly sliced white onion
 1/2 cup thinly sliced button, cremini, or
 portabella mushrooms
 1/2 red bell pepper, seeded, ribs removed,
 and sliced into strips
-1/4 teaspoon black pepper
+1/4 tsp black pepper
 
 ## Instructions
 1. CREATE an ice bath for “shocking” the green beans by filling
 a large bowl halfway with cold water, then adding the ice.
-2. BRING 3 cups of water and 2 tablespoons of the salt to
+2. BRING 3 cup of water and 2 tbsp of the salt to
 a boil in a large saucepan over high heat Add the green
 beans and blanch for 20 seconds. Remove from the pot
 using kitchen tongs or a slotted spoon and shock them
@@ -34,7 +34,7 @@ and mushrooms have softened, about 2 minutes.
 and toss with the other vegetables. Cook, shaking the pan
 often, until the beans are tender, about 2 minutes. (The easi-
 est way to test is by tasting one!) Transfer the vegetables to
-a serving dish and season with the remaining “% teaspoon
+a serving dish and season with the remaining “% tsp
 salt and the pepper.
 
 ### MAKE IT A MEAL: 

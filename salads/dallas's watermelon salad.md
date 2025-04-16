@@ -3,8 +3,8 @@
 Yield: 
 
 ## Ingredients
-2 pounds watermelon, cut into large dice
-2 tablespoons extra-virgin olive oil
+2 lb watermelon, cut into large dice
+2 tbsp extra-virgin olive oil
 Juice of 2 limes
 Leaves from 4 sprigs fresh mint, finely chopped
 1/2 serrano chile pepper, seeded, finely sliced

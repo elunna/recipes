@@ -6,17 +6,17 @@ Prep time: 1hr 25 min
 ## Ingredients
 Cookies
 2 sticks unsalted butter, room temperature
-1 tablespoon packed finely grated Meyer-lemon zest, plus 2 tablespoons fresh juice (from 2 lemons)
-¾ cup confectioners' sugar
-1 ¼ teaspoons kosher salt
-2 cups unbleached all-purpose flour, plus more for dusting
+1 tbsp packed finely grated Meyer-lemon zest, plus 2 tbsp fresh juice (from 2 lemons)
+3/4 cup confectioners' sugar
+1 1/4 tsp kosher salt
+2 cup unbleached all-purpose flour, plus more for dusting
 
 Glaze and Decorations
 60 sprigs (each about 1 inch long) fresh thyme or rosemary, or a combination
 1 large egg white, beaten
 Granulated sugar, for sprinkling
-¾ cup plus 2 tablespoons confectioners' sugar
-3 tablespoons fresh Meyer-lemon juice
+3/4 cup plus 2 tbsp confectioners' sugar
+3 tbsp fresh Meyer-lemon juice
 Small red, white, and green candies, such as nonpareils and pearls
 
 ## Instructions

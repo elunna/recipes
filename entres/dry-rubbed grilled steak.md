@@ -3,24 +3,24 @@
 Yield: 
 
 ## Ingredients
-3 tablespoons salt
-2 tablespoons paprika
-2 teaspoons dried oregano
-2 teaspoons ground mustard
-2 teaspoons onion powder
-2 teaspoons black pepper
-1 teaspoon ground turmeric
-1 teaspoon garlic powder
-1/4 teaspoon cayenne pepper
-4 steaks (5 to 8 ounces each) for grilling
+3 tbsp salt
+2 tbsp paprika
+2 tsp dried oregano
+2 tsp ground mustard
+2 tsp onion powder
+2 tsp black pepper
+1 tsp ground turmeric
+1 tsp garlic powder
+1/4 tsp cayenne pepper
+4 steaks (5 to 8 oz each) for grilling
 (sirloin, strip, rib eye, tenderloin)
 
 ## Instructions
 1. TO make the dry rub, mix all the seasonings
-together in a small bowl. Reserve 2 tablespoons
+together in a small bowl. Reserve 2 tbsp
 and store the rest in an airtight container. 
 2. SEASON each steak evenly on both sides using
-1 1/2 teaspoons of the dry rub. Let the steaks mari-
+1 1/2 tsp of the dry rub. Let the steaks mari-
 nate at room temperature for 15 to 30 minutes.
 3. WHILE the steaks are marinating, preheat the
 grill to high heat (500°F) and the oven to 350°F.

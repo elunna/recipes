@@ -5,13 +5,13 @@ Prep time: 15 min
 
 ## Ingredients
 
-1 pound green beans, stem ends removed
+1 lb green beans, stem ends removed
 1 garlic clove, smashed and peeled
-1 tablespoon butter, cut up
+1 tbsp butter, cut up
 Coarse salt
 
 ## Instructions
-1. Place beans, garlic, butter, and cup water in a 2- to 2 1/2-quart shallow microwave-safe dish with a lid; season with salt.
+1. Place beans, garlic, butter, and cup water in a 2- to 2 1/2-qt shallow microwave-safe dish with a lid; season with salt.
 
 2. Cover, and microwave on high until beans are crisp-tender, 6 to 7 minutes. Stir, and pour off any excess liquid.
 

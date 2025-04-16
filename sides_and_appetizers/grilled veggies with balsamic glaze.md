@@ -12,9 +12,9 @@ l-inch pieces
 2 bell peppers, seeded, ribs removed, and
 cut into 1-inch slices
 1/4 cup extra-virgin olive oil
-1/2 teaspoon salt
-1/2 teaspoon black pepper
-2 tablespoons finely chopped fresh parsley
+1/2 tsp salt
+1/2 tsp black pepper
+2 tbsp finely chopped fresh parsley
 
 ## Instructions
 1. TO make the balsamic glaze, bring the vinegar

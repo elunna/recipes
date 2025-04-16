@@ -3,16 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-4 medium zucchini (about 4 cups
+4 medium zucchini (about 4 cup
 of “noodles”)
-2 tablespoons cooking fat
+2 tbsp cooking fat
 1/4 onion, finely chopped
 2 cloves garlic, minced
-1 pound large shrimp, peeled
+1 lb large shrimp, peeled
 and deveined
-1 teaspoon salt
-1/2 teaspoon black pepper
-2 teaspoons chopped fresh
+1 tsp salt
+1/2 tsp black pepper
+2 tsp chopped fresh
 parsley leaves
 Romesco Sauce (page 318)
 
@@ -23,7 +23,7 @@ until you get down to the seeded core. Rotate the zucchini
 and continue to peel until you’ve done all four sides. (If you
 have a spiral slicer, you can use that instead of a julienne
 peeler.) Discard the core, and set the noodles aside.
-2. ADD 2 cups of water to a large pot over medium-high heat
+2. ADD 2 cup of water to a large pot over medium-high heat
 and bring to a boil while you begin cooking the shrimp.
 3. MELT the cooking fat in a large skillet over medium heat,
 swirling to coat the bottom of the pan. When the fat is hot,

@@ -6,12 +6,12 @@ Prep time:
 ## Ingredients
 
 2 cans of wild tuna
-2–3 tablespoons of mayo 
-1 tablespoon dijon or spicy mustard
-4 tablespoons chopped onion
+2–3 tbsp of mayo 
+1 tbsp dijon or spicy mustard
+4 tbsp chopped onion
 1/4 cup chopped carrot
 1/4 cup chopped celery
-1/2 teaspoon black pepper
+1/2 tsp black pepper
 Dill to taste
 3 ripe avocados
 

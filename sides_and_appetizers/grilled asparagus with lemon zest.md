@@ -3,10 +3,10 @@
 Yield: 
 
 ## Ingredients
-1 pound asparagus, trimmed
-1 tablespoon clarified butter, ghee,
+1 lb asparagus, trimmed
+1 tbsp clarified butter, ghee,
 or coconut oil, melted
-1/2 teaspoon salt
+1/2 tsp salt
 Grated zest and juice of 1 lemon
 
 ## Instructions
@@ -54,6 +54,6 @@ This will keep the asparagus from
 accidentally falling through the grill
 grates. If you don’t have a grill, cook
 the asparagus in a large skillet over
-medium-high heat in 1 tablespoon of
+medium-high heat in 1 tbsp of
 cooking fat for 10 minutes, stirring
 occasionally to cook all sides evenly.

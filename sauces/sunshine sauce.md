@@ -8,10 +8,10 @@ Yield: 1 cup
 seed butter
 1/2 cup coconut milk
 Juice of 1 lime
-1 tablespoon coconut aminos (optional)
+1 tbsp coconut aminos (optional)
 1 clove garlic, minced
-1/2 teaspoon crushed red pepper flakes
-1/2 teaspoon rice vinegar or apple
+1/2 tsp crushed red pepper flakes
+1/2 tsp rice vinegar or apple
 cider vinegar
 
 

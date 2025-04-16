@@ -4,33 +4,33 @@ Yield: 4 servings
 
 ## Ingredients
 1 cup farro
-¼ cup chicken stock
-1 ½ tablespoons sambal oelek, ground fresh chile paste
-1 tablespoon brown sugar
-1 tablespoon freshly squeezed lime juice
-1 pound boneless skinless chicken breast, cut into 1-inch chunks
-1 tablespoon cornstarch
-1 tablespoon fish sauce
-1 tablespoon olive oil
+1/4 cup chicken stock
+1 1/2 tbsp sambal oelek, ground fresh chile paste
+1 tbsp brown sugar
+1 tbsp freshly squeezed lime juice
+1 lb boneless skinless chicken breast, cut into 1-inch chunks
+1 tbsp cornstarch
+1 tbsp fish sauce
+1 tbsp olive oil
 2 cloves garlic, minced
 1 shallot, minced
-1 tablespoon freshly grated ginger
+1 tbsp freshly grated ginger
 Kosher salt and freshly ground black pepper, to taste
-2 cups shredded kale
-1 ½ cups shredded purple cabbage
+2 cup shredded kale
+1 1/2 cup shredded purple cabbage
 1 cup bean sprouts
 2 carrots, peeled and grated
-½ cup fresh cilantro leaves
-¼ cup roasted peanuts
+1/2 cup fresh cilantro leaves
+1/4 cup roasted peanuts
 For the spicy peanut sauce
-3 tablespoons creamy peanut butter
-2 tablespoons freshly squeezed lime juice
-1 tablespoon reduced sodium soy sauce
-2 teaspoons dark brown sugar
-2 teaspoons sambal oelek, ground fresh chile paste
+3 tbsp creamy peanut butter
+2 tbsp freshly squeezed lime juice
+1 tbsp reduced sodium soy sauce
+2 tsp dark brown sugar
+2 tsp sambal oelek, ground fresh chile paste
 
 ## Instructions
-1. To make the spicy peanut sauce, whisk together peanut butter, lime juice, soy sauce, brown sugar, sambal oelek and 2-3 tablespoons water in a small bowl; set aside.
+1. To make the spicy peanut sauce, whisk together peanut butter, lime juice, soy sauce, brown sugar, sambal oelek and 2-3 tbsp water in a small bowl; set aside.
 2. Cook farro according to package instructions; set aside.
 3. In a small bowl, whisk together chicken stock, sambal oelek, brown sugar and lime juice; set aside.
 4. In a large bowl, combine chicken, cornstarch and fish sauce, tossing to coat and letting the chicken absorb the cornstarch.

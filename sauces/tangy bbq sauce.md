@@ -3,17 +3,17 @@
 Yield: 
 
 ## Ingredients
-2 tablespoons ghee or clarified butter
+2 tbsp ghee or clarified butter
 1 small onion, diced
 3 cloves roasted garlic (see tip)
 1 large sweet potato, peeled and cut into
 l-inch dice
 1/2 cup apple cider
-1 can (3 ounces) tomato paste
-1 tablespoon apple cider vinegar
-1 teaspoon paprika
-1 teaspoon salt
-1/2 teaspoon chipotle powder
+1 can (3 oz) tomato paste
+1 tbsp apple cider vinegar
+1 tsp paprika
+1 tsp salt
+1/2 tsp chipotle powder
 
 
 ## Instructions

@@ -12,7 +12,7 @@ Description: I am a huge fan of the rice at Chipotle's. Here is my copycat versi
 ## Ingredients
 1 cup extra long grain rice or basmati rice
 1/2 lime, juice of
-2 cups water
+2 cup water
 1 tsp salt
 3 tbsp fresh chopped cilantro
 3 tsp vegetable oil

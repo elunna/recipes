@@ -3,18 +3,18 @@
 Yield: 4 servings
 
 ## Ingredients
-3 tablespoons toasted sesame oil
-1 pound boneless beef short ribs, thinly sliced against the grain
+3 tbsp toasted sesame oil
+1 lb boneless beef short ribs, thinly sliced against the grain
 Kosher salt, freshly ground pepper
 2 small onions, thinly sliced
-8 ounces shiitake mushrooms, stems removed, caps thinly sliced
+8 oz shiitake mushrooms, stems removed, caps thinly sliced
 1 bunch scallions, cut into 1-inch pieces
 1 2-inch piece ginger, peeled, finely grated
 4 garlic cloves, finely grated
-¼ cup sambal oelek
-1 tablespoon mirin
+1/4 cup sambal oelek
+1 tbsp mirin
 6 medium radishes, trimmed, quartered
-6 ounces snow peas
+6 oz snow peas
 1 cup low-sodium chicken broth
 Cooked short-grain rice (for serving)
 1 cup torn basil leaves

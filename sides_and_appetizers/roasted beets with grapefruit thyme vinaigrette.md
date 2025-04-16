@@ -4,14 +4,14 @@ Yield:
 
 ## Ingredients
 4 medium beets
-3/4 cup plus 2 tablespoons extra-virgin olive oil
+3/4 cup plus 2 tbsp extra-virgin olive oil
 1/4 cup grapefruit juice
 2 cloves garlic, minced
-2 teaspoons mustard powder
-2 teaspoons fresh thyme
-1 teaspoon salt
-1/2 teaspoon black pepper
-1 package (about 5 ounces) arugula
+2 tsp mustard powder
+2 tsp fresh thyme
+1 tsp salt
+1/2 tsp black pepper
+1 package (about 5 oz) arugula
 1/4 cup slivered or sliced almonds
 
 ## Instructions
@@ -20,7 +20,7 @@ Yield:
 all sides with a fork. 
 
 3. Place in a medium bowl
-and add 2 tablespoons of the olive oil, tossing
+and add 2 tbsp of the olive oil, tossing
 or mixing to thoroughly coat.
 4.  Wrap each of the
 oiled beets separately in aluminum foil, pinch-

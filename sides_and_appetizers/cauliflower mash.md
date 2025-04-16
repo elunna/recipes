@@ -4,24 +4,24 @@ Yield: 2 servings
 
 ## Ingredients
 1 head cauliflower, cut into florets
-(about 4 cups)
+(about 4 cup)
 2 cloves garlic, minced
 1/2 cup coconut cream (see page 178)
-2 tablespoons ghee or clarified butter
-1 teaspoon salt
-1/4 teaspoon black pepper
+2 tbsp ghee or clarified butter
+1 tsp salt
+1/4 tsp black pepper
 1/2 cup chicken broth
-1 tablespoon minced fresh parsley
+1 tbsp minced fresh parsley
 
 ## Instructions
-1. BRING 2 cups of water to a boil ina large pot over
+1. BRING 2 cup of water to a boil ina large pot over
 medium-high heat. Add the cauliflower florets and gar-
 lic and simmer until the florets are fork-tender, about 15
 minutes.
 2. DRAIN the cauliflower and transfer to a food processor.
 Add the coconut cream, ghee, salt, and pepper and pulse
 until the cauliflower begins to turn smooth in consistency.
-Add the chicken broth one tablespoon at a time, pulsing
+Add the chicken broth one tbsp at a time, pulsing
 to mix, until the desired consistency is achieved. Add the
 parsley and continue blending until completely smooth.
 Serve warm.
@@ -50,14 +50,14 @@ potatoes, and has dozens of variations
 to match nearly any style of cuisine. Add
 more chicken broth if you like it extra
 creamy, or keep the chicken broth to
-just a tablespoon or so if you prefer it
+just a tbsp or so if you prefer it
 _ really thick. Try topping with crumbled
 Whole30-compliant bacon or crispy
 prosciutto; add a blend of fresh herbs
 like rosemary, oregano, and thyme;
-kick it up a notch with 2 tablespoons of
+kick it up a notch with 2 tbsp of
 grated, peeled fresh horseradish root or
-1 teaspoon chili powder; add a dollop of
+1 tsp chili powder; add a dollop of
 whole grain mustard (perfect alongside
 pork); or stir in shredded cabbage and
 kale sautéed in clarified butter or ghee.

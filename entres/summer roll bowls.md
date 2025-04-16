@@ -21,7 +21,7 @@ Vietnamese Peanut Sauce
 1 Tbsp. plus 1/2 tsp. kosher salt, divided
 8 oz. medium shrimp, peeled, deveined
 8 oz. straight-cut rice noodles
-2 cups thinly sliced romaine lettuce
+2 cup thinly sliced romaine lettuce
 1 large carrot, thinly sliced into long batons
 1 Persian cucumber, thinly sliced into long batons
 1/2 avocado, thinly sliced
@@ -38,10 +38,10 @@ Vietnamese Peanut Sauce
 2. Make Ahead: Peanut sauce can be made 3 days ahead. Store in an airtight container and refrigerate.
 
 ### BOWLS
-1. In a medium pot over medium heat, cook sugar, vinegar, 1/2 teaspoon salt, and 2 tablespoons water, whisking frequently, until sugar is dissolved, about 2 minutes.
+1. In a medium pot over medium heat, cook sugar, vinegar, 1/2 tsp salt, and 2 tbsp water, whisking frequently, until sugar is dissolved, about 2 minutes.
 2. Add shrimp and bring to a simmer. Cook, stirring constantly, until shrimp turns pink and curls up, 2 to 3 minutes. Transfer shrimp mixture to a small bowl.
-3. Wipe out pot and fill halfway with water; season with remaining 1 tablespoon salt. Bring to a boil and cook noodles, stirring occasionally, until tender, checking 2 minutes earlier than package directions. Drain, then rinse noodles under cold water.
-4. Transfer noodles to a medium bowl. Add 6 tablespoons nước chấm and toss to combine.
+3. Wipe out pot and fill halfway with water; season with remaining 1 tbsp salt. Bring to a boil and cook noodles, stirring occasionally, until tender, checking 2 minutes earlier than package directions. Drain, then rinse noodles under cold water.
+4. Transfer noodles to a medium bowl. Add 6 tbsp nước chấm and toss to combine.
 5. In a large bowl, toss lettuce, carrot, and cucumber with 1/2 cup nước chấm.
 6. Divide noodles among bowls. Nestle salad mixture alongside. Top with shrimp, avocado, herbs, and peanuts. Serve with peanut sauce alongside.
 7. Make Ahead: Shrimp and noodles can be cooked 2 days ahead. Store separately in airtight containers and refrigerate.

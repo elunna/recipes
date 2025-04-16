@@ -8,19 +8,19 @@ Juice from 3 lemons, divided
 1 bay leaf
 
 6 black peppercorns
-2 salmon fillets (5 ounces each)
+2 salmon fillets (5 oz each)
 1/2 cup Basic Mayonnaise (page 179)
 1/4 cup coconut cream (see page 178)
 1/2 cucumber, peeled and diced
 1/2 shallot, minced
 2 sprigs fresh dill, leaves only, chopped
-1 teaspoon salt
-1/2 teaspoon black pepper
+1 tsp salt
+1/2 tsp black pepper
 1/2 lemon, thinly sliced
 
 ## Instructions
 1. PREHEAT the oven to 400°F.
-2. TO make the poaching liquid, combine 2 cups of water with
+2. TO make the poaching liquid, combine 2 cup of water with
 the rice vinegar, the juice of 2 lemons, the bay leaf, and pep-
 percorns in a small saucepan. Bring to a boil over high heat,
 then remove from the heat.

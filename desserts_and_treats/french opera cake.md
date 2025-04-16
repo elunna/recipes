@@ -6,18 +6,18 @@ Prep time:
 ## Ingredients
 For the cake:
 
-85 grams (3 ounces) confectioners’ sugar, sifted
+85 g (3 oz) confectioners’ sugar, sifted
 4 large eggs
-1 teaspoon vanilla bean extract
-115 grams (4 ounces) almond meal
-65 grams (2.3 ounces) plain flour
-2 tablespoons espresso powder
-1 teaspoon baking powder
-1/8 teaspoon fine sea salt
-2 tablespoons unsalted butter, melted
+1 tsp vanilla bean extract
+115 g (4 oz) almond meal
+65 g (2.3 oz) plain flour
+2 tbsp espresso powder
+1 tsp baking powder
+1/8 tsp fine sea salt
+2 tbsp unsalted butter, melted
 4 large egg whites
-50 grams (1.8 ounces) caster sugar
-1 teaspoon cream of tartar
+50 g (1.8 oz) caster sugar
+1 tsp cream of tartar
 
 ## Instructions
 
@@ -39,7 +39,7 @@ Once cool, level any domed tops and halve each layer, if desired.
 
 For the soak:
 
-50 grams (1.8 ounces) caster sugar, 2 teaspoons espresso powder, 60 ml (2.1 fluid ounces) water, 2 tablespoons coffee liqueur
+50 g (1.8 oz) caster sugar, 2 tsp espresso powder, 60 ml (2.1 fluid oz) water, 2 tbsp coffee liqueur
 
 Combine the sugar, espresso and water in a small saucepan.
 
@@ -47,7 +47,7 @@ Bring the mixture to a boil over medium-high heat, then reduce the heat to low a
 
 For the ganache:
 
-170 grams (6 ounces) dark chocolate, finely chopped, 120 ml (4.2 ounces) heavy cream
+170 g (6 oz) dark chocolate, finely chopped, 120 ml (4.2 oz) heavy cream
 
 Place the chocolate in a heatproof bowl.
 
@@ -57,7 +57,7 @@ Remove from the heat and pour the hot cream all over the chocolate. Let the mixt
 
 For the buttercream:
 
-2 teaspoons espresso powder. 3 tablespoons hot water, 6 large egg yolks, 200 grams (7 ounces) caster sugar, 60 ml (2.1 fluid ounces) water, 2 teaspoons vanilla bean extract, 280 grams (9.9 ounces) unsalted butter, very soft at room temperature, cut into tablespoons
+2 tsp espresso powder. 3 tbsp hot water, 6 large egg yolks, 200 g (7 oz) caster sugar, 60 ml (2.1 fluid oz) water, 2 tsp vanilla bean extract, 280 g (9.9 oz) unsalted butter, very soft at room temperature, cut into tbsp
 
 Mix the espresso and hot water together in a small bowl until dissolved. Set aside to cool.
 
@@ -71,13 +71,13 @@ Stop the mixer and swap out the whisk for the paddle attachment.
 
 With the mixer speed on low, add in the vanilla. Mix to combine.
 
-Increase the speed to medium and add in the butter, a tablespoon at a time, until it is all used up.
+Increase the speed to medium and add in the butter, a tbsp at a time, until it is all used up.
 
 Pour in the espresso, beat to combine and turn the mixer speed to high. Beat for about 30 more seconds, or until the buttercream is smooth, thick and fluffy. Set aside for assembly.
 
 For the glaze:
 
-150 grams (5.3 ounces) dark chocolate, finely chopped, 2 teaspoons vegetable oil
+150 g (5.3 oz) dark chocolate, finely chopped, 2 tsp vegetable oil
 
 [b]For the dark chocolate drippy glaze:[/b]
 
@@ -89,9 +89,9 @@ For assembly:
 
 Arrange the cake layers, cut side up, on two wire racks. Glaze the tops with the coffee syrup.
 
-Place the first cake layer, on a stand or serving platter. Spread a generous tablespoon of the ganache on top of it then set in the refrigerator or freezer to harden the ganache, about 10 minutes.
+Place the first cake layer, on a stand or serving platter. Spread a generous tbsp of the ganache on top of it then set in the refrigerator or freezer to harden the ganache, about 10 minutes.
 
-Once set, spread about 60 grams (2.1 ounces) or two generous tablespoons, of the buttercream on top of the ganache. Sandwich with a second cake layer. Repeat this process, spreading with ganache, setting to harden in the fridge and then frosting with the buttercream until all the cake layers have been used up.
+Once set, spread about 60 g (2.1 oz) or two generous tbsp, of the buttercream on top of the ganache. Sandwich with a second cake layer. Repeat this process, spreading with ganache, setting to harden in the fridge and then frosting with the buttercream until all the cake layers have been used up.
 
 Use the remaining ganache to crumb coat the cake and refrigerate until completely set.
 

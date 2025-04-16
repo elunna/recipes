@@ -4,10 +4,10 @@ Yield: 8 servings
 Prep time: 10 min
 
 ## Ingredients
-2 tablespoons extra-virgin olive oil
-1 ½ teaspoons coarse salt
-1 teaspoon freshly ground white pepper
-1 bone-in, skin-on turkey breast half (about 2 ½ pounds)
+2 tbsp extra-virgin olive oil
+1 1/2 tsp coarse salt
+1 tsp freshly ground white pepper
+1 bone-in, skin-on turkey breast half (about 2 1/2 lb)
 
 ## Instructions
 1. Preheat oven to 400F. Stir together oil, salt, and white pepper; brush over turkey.

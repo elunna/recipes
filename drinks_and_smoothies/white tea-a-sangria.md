@@ -8,7 +8,7 @@ Yield:
 1 cup boiling water
 1/4 cup halved white grapes
 1/4 cup golden delicious apple, diced
-8 ounces sparkling water
+8 oz sparkling water
 Lemon slices
 
 ## Instructions

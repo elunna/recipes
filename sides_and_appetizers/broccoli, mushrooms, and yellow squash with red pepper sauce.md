@@ -4,10 +4,10 @@ Yield: 2 servings
 
 ## Ingredients
 1 head broccoli, cut into florets
-2 tablespoons coconut oil or extra-
+2 tbsp coconut oil or extra-
 virgin olive oil
 1/4 small onion, finely chopped
-1/2 pint button, cremini, or portabella
+1/2 pt button, cremini, or portabella
 mushrooms, quartered
 1 medium yellow squash, cut into
 large dice
@@ -44,7 +44,7 @@ Seared Chicken Breasts (page 157).
 ### BROCCOLI
 Don’t waste those broccoli stems! You can
 use them to make a creamy, delicious soup. First, peel the
-stems and slice them into thin coins. Heat 1 tablespoon
+stems and slice them into thin coins. Heat 1 tbsp
 coconut oil, clarified butter, or ghee in a medium pot, then
 add half a chopped onion, 2 cloves minced garlic, 1 cup sliced
 mushrooms, and the broccoli stems. Cook for 10 minutes,
@@ -59,7 +59,7 @@ pot to a blender or food processor and blend until smooth,
 Save prep time by making the Roasted
 Red Pepper Sauce up to 2 days
 ahead of time. You could also sprinkle
-1 tablespoon red pepper flakes over the
+1 tbsp red pepper flakes over the
 vegetables when you add the garlic,
 add your favorite Whole30-compliant
 salad dressing when serving, or top

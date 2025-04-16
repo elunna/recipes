@@ -3,11 +3,11 @@
 Yield: 18 to 24 Serves
 
 ## Ingredients
-1 whole bone-in Virginia honey ham (about 18 pounds), such as Edwards
-½ cup honey
-⅓ cup Dijon mustard, plus more for serving
-⅓ cup packed light-brown sugar
-¼ teaspoon ground cloves
+1 whole bone-in Virginia honey ham (about 18 lb), such as Edwards
+1/2 cup honey
+1/3 cup Dijon mustard, plus more for serving
+1/3 cup packed light-brown sugar
+1/4 tsp ground cloves
 
 ## Instructions
 1. Preheat oven to 325 degrees with a rack in lower third. Line a roasting pan with a rack. Wrap ham in parchment-lined foil. Transfer to pan, with thicker rind side facing up. Bake 2 1/2 hours. Meanwhile, in a medium bowl, stir together honey, Dijon, brown sugar, and cloves.

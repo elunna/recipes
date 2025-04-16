@@ -35,4 +35,4 @@ Avocado dip:
 
 ## Notes
 
-Want more sauce? Lift the chops out of the boiler. Mix 1 1/2 dl of water and with 1 1/2 teaspoon corn starch and whisk into the frying pan (for 4 port). 
+Want more sauce? Lift the chops out of the boiler. Mix 1 1/2 dl of water and with 1 1/2 tsp corn starch and whisk into the frying pan (for 4 port). 

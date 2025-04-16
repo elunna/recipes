@@ -5,9 +5,9 @@ Yield:
 ## Ingredients
 1/4 cup balsamic vinegar
 2 cloves garlic, minced
-2 teaspoons mustard powder
+2 tsp mustard powder
 3/4 cup extra-virgin olive oil
-1 teaspoon minced fresh cilantro (or 1/4 teaspoon dried)
+1 tsp minced fresh cilantro (or 1/4 tsp dried)
 Salt and black pepper
 
 

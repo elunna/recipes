@@ -3,17 +3,17 @@
 Yield: 
 
 ## Ingredients
-1 tablespoon cooking fat
+1 tbsp cooking fat
 1 onion, finely chopped
 2 celery stalks, finely chopped
 1 carrot, peeled and finely chopped
 2 cloves garlic, minced
-1 can (28 ounces) crushed tomatoes
-1 teaspoon fresh thyme
-1 teaspoon fresh oregano
+1 can (28 oz) crushed tomatoes
+1 tsp fresh thyme
+1 tsp fresh oregano
 1 bay leaf
-1 teaspoon salt
-1 teaspoon black pepper
+1 tsp salt
+1 tsp black pepper
 
 
 ## Instructions
@@ -41,7 +41,7 @@ adding another can of tomatoes while it’s reheating.
 If you’re serving this sauce fresh, you can
 substitute about 6 fresh tomatoes for the
 canned. You can also quickly turn this
-into a meat sauce: Just add 1 pound
+into a meat sauce: Just add 1 lb
 of leftover Perfect Ground Meat (page
 152) and 1 cup of beef broth in the
 last ten minutes of simmering. Serve

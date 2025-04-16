@@ -1,18 +1,18 @@
 # Garlic-Thyme Mashed Potatoes
 ---
-Yield: 8-10 cups
+Yield: 8-10 cup
 Prep time: 25 min
 
 ## Ingredients
-5 pounds Yukon Gold potatoes, cut into 1 ½-inch pieces
+5 lb Yukon Gold potatoes, cut into 1 1/2-inch pieces
 Kosher salt and freshly ground pepper
 4 garlic cloves, peeled and smashed
-1 ½ cups whole milk
+1 1/2 cup whole milk
 1 stick unsalted butter, plus more for serving
 3 sprigs fresh thyme
 
 ## Instructions
-1. Place potatoes in a large pot with 2 tablespoons salt and garlic. Add water to cover by 1 inch and bring to a boil. Then reduce heat to medium and simmer until potatoes are tender and can be pierced easily with a fork, 12 to 15 minutes.
+1. Place potatoes in a large pot with 2 tbsp salt and garlic. Add water to cover by 1 inch and bring to a boil. Then reduce heat to medium and simmer until potatoes are tender and can be pierced easily with a fork, 12 to 15 minutes.
 
 2. Drain potatoes and garlic in a colander. Return to pot and cook over medium, stirring frequently, until pale, dry, and a film begins to form on bottom of pot, 2 to 3 minutes. Working in batches, press through a ricer into a large bowl, or mash directly in pot with a potato masher. Cover to keep warm.
 

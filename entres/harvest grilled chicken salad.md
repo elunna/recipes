@@ -3,15 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-1/2 teaspoon salt
-1/2 teaspoon black pepper
-1/2 teaspoon ground cumin
-1/2 teaspoon chili powder
-1/2 teaspoon garlic powder
-1/2 teaspoon onion powder
-1 pound boneless, skinless chicken
+1/2 tsp salt
+1/2 tsp black pepper
+1/2 tsp ground cumin
+1/2 tsp chili powder
+1/2 tsp garlic powder
+1/2 tsp onion powder
+1 lb boneless, skinless chicken
 breasts
-4 cups lettuce leaves (torn into
+4 cup lettuce leaves (torn into
 l-inch pieces)
 1/2 Granny Smith apple, cored and
 sliced or diced

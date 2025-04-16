@@ -10,18 +10,18 @@ Image:
 
 ## Ingredients
 For pork
-2 teaspoons salt
-1/2 teaspoon black pepper
-1 teaspoon ground cumin
-1 teaspoon chili powder
-1 teaspoon cinnamon
-2 pork tenderloins (2 1/4 to 2 1/2 pounds total)
-2 tablespoons olive oil
+2 tsp salt
+1/2 tsp black pepper
+1 tsp ground cumin
+1 tsp chili powder
+1 tsp cinnamon
+2 pork tenderloins (2 1/4 to 2 1/2 lb total)
+2 tbsp olive oil
 
 For glaze
 1 cup packed dark brown sugar
-2 tablespoons finely chopped garlic
-1 tablespoon Tabasco
+2 tbsp finely chopped garlic
+1 tbsp Tabasco
 
 Special equipment: an instant-read thermometer
 

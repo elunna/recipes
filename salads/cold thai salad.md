@@ -17,14 +17,14 @@ julienne peeler, make long slices along one side of one
 zucchini, until you get down to the seeded core. Rotate the
 zucchini and continue to peel until you’ve done all four
 sides. Repeat the process with the remaining zucchini and
-the cucumber. You should have about 2 cups of “noodles.”
+the cucumber. You should have about 2 cup of “noodles.”
 (If you have a spiral slicer, you can use that instead of a
 julienne peeler.) Discard the cores.
 2. PLACE the zucchini and cucumber noodles in a medium
 mixing bowl. Add the shredded carrots, bean sprouts if
 using, most of the chopped cashews, and most of the cilan-
 tro. Chill for 30 minutes.
-3. ADD a tablespoon (or more) of water to the Sunshine Sauce
+3. ADD a tbsp (or more) of water to the Sunshine Sauce
 to thin it out to the consistency of a creamy dressing and
 pour over the chilled salad, stirring well to combine. Garnish
 with the remaining cashews and cilantro and serve.
@@ -33,12 +33,12 @@ with the remaining cashews and cilantro and serve.
 Add cooked shrimp, chicken, or hard-
 eed eggs to the salad before chilling to make it a complete
 meal. Or serve alongside Halibut with Citrus-Ginger Glaze
-(page 240), Thai Cucumber Cups with Turkey (page 234), or
+(page 240), Thai Cucumber cup with Turkey (page 234), or
 Chimichurri Beef Kabobs (page 218).
 
 ### THAI SOUP
 You could easily turn this cold dish into a
-hot soup. Heat 4 cups of beef or chicken broth in a large pot.
+hot soup. Heat 4 cup of beef or chicken broth in a large pot.
 While that’s warming, place a small skillet over medium heat
 and add the cashews. Toast them in the pan, shaking often,
 until golden brown, 3 to 4 minutes. Remove the cashews

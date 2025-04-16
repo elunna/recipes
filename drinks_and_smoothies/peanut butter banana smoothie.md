@@ -1,6 +1,6 @@
 # Peanut Butter Banana Smoothie
 ---
-Yield: 1 serving (13 ounce) smoothie 
+Yield: 1 serving (13 oz) smoothie 
 Category:
 Prep time:
 Rating:
@@ -11,8 +11,8 @@ Image:
 ## Ingredients
 - 1 cup whole milk
 - 1 medium ripe banana, cut into chunks and frozen
-- 2 tablespoons unsweetened peanut butter
-- 2 tablespoons of greek yogurt 
+- 2 tbsp unsweetened peanut butter
+- 2 tbsp of greek yogurt 
 - A few dashes cinnamon
 - 2 ice cubes
 
@@ -28,6 +28,6 @@ Image:
 17g	Protein
 
 Optional
-* Add a teaspoon of cocoa powder for a hit of chocolatey flavor
-* Add 1/2 teaspoon vanilla extract
+* Add a tsp of cocoa powder for a hit of chocolatey flavor
+* Add 1/2 tsp vanilla extract
 * Toss in several fresh or frozen strawberries

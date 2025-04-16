@@ -6,15 +6,15 @@ Yield: Makes 4 burgers
 ### For the red pepper mayo:
 1 cup mayonnaise
 1/4 cup (packed) coarsely chopped and drained roasted red bell peppers
-2 teaspoons drained capers
-2 teaspoons fresh lemon juice
-1/4 teaspoon kosher salt
+2 tsp drained capers
+2 tsp fresh lemon juice
+1/4 tsp kosher salt
 
 ### For the burgers:
 1/2 cup plain breadcrumbs
-1/2 teaspoon freshly ground black pepper
-18 ounces canned salmon, drained, picked through, flaked
-2 tablespoons vegetable oil, divided
+1/2 tsp freshly ground black pepper
+18 oz canned salmon, drained, picked through, flaked
+2 tbsp vegetable oil, divided
 4 hamburger buns
 1/3 cup drained roasted red bell peppers, cut into 1/4" strips
 

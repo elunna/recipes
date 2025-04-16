@@ -3,16 +3,16 @@
 Yield: 2 servings
 
 ## Ingredients
-1 teaspoon salt
-1 teaspoon black pepper
+1 tsp salt
+1 tsp black pepper
 2 bone-in pork chops (about
-1 pound total)
-3 tablespoons cooking fat
+1 lb total)
+3 tbsp cooking fat
 1 onion, sliced
 2 apples, peeled, cored and diced
 1/2 cup apple cider
-1/2 teaspoon ground ginger
-1/2 teaspoon allspice
+1/2 tsp ground ginger
+1/2 tsp allspice
 1 pinch nutmeg
 2 generous handfuls frisée
 
@@ -20,7 +20,7 @@ Yield: 2 servings
 1. PREHEAT the oven to 350°F.
 2. MIX the salt and pepper in a small bowl and use to season
 both sides of the pork chops.
-3. MELT 2 tablespoons of the cooking fat in a large skillet
+3. MELT 2 tbsp of the cooking fat in a large skillet
 over medium-high heat. When the fat is hot, add the pork
 chops and sear until you see a golden brown crust, 2 to 3
 minutes. Turn and sear the other side for 2 minutes.
@@ -28,7 +28,7 @@ minutes. Turn and sear the other side for 2 minutes.
 the oven until the internal temperature reaches 140°F,
 10 to 15 minutes, depending on thickness.
 5. WHILE the pork is roasting, combine the remaining
-1 tablespoon fat and the onion in the same skillet. Cook
+1 tbsp fat and the onion in the same skillet. Cook
 over medium heat until the onion is translucent, 2 to 3
 minutes. Add the apple, apple cider, ginger, allspice, and
 nutmeg. Cook (while scraping all the tasty bits off the bot-

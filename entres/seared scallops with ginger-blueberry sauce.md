@@ -5,14 +5,14 @@ Yield:
 ## Ingredients
 ### FOR THE GINGER-BLUEBERRY SAUCE
 1 cup fresh or frozen blueberries
-1 1/2 teaspoons finely chopped fresh ginger
-1/4 teaspoon salt
+1 1/2 tsp finely chopped fresh ginger
+1/4 tsp salt
 
 ### FOR THE SCALLOPS
-3/4 pound sea scallops, patted dry
-1/2 teaspoon salt
-1/2 teaspoon black pepper
-3 tablespoons cooking fat
+3/4 lb sea scallops, patted dry
+1/2 tsp salt
+1/2 tsp black pepper
+3 tbsp cooking fat
 
 ## Instructions
 ### TO MAKE THE GINGER-BLUEBERRY SAUCE: 

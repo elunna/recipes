@@ -3,18 +3,18 @@
 Yield: 
 
 ## Ingredients
-2 tablespoons coconut oil
-1 teaspoon sesame oil
+2 tbsp coconut oil
+1 tsp sesame oil
 1 cup roughly chopped trimmed lemongrass
-2 tablespoons chopped green onions
-1 1/2 teaspoons grated fresh ginger
+2 tbsp chopped green onions
+1 1/2 tsp grated fresh ginger
 1 clove garlic, minced
 Juice of 1/2 lime
-1/2 pound boneless, skinless chicken breast,
+1/2 lb boneless, skinless chicken breast,
 cut into 1-inch strips
-1 tablespoon cooking fat (melted, if necessary}
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+1 tbsp cooking fat (melted, if necessary}
+1/2 tsp salt
+1/4 tsp black pepper
 
 ## Instructions
 1. IF using wooden skewers, soak them in water for

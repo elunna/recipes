@@ -5,8 +5,8 @@ Yield:
 ## Ingredients
 1/2 cup fresh raspberries, finely chopped or smashed
 1/4 cup apple cider vinegar
-2 tablespoons finely chopped walnuts
-1 teaspoon minced fresh cilantro (or 1/4 teaspoon dried)
+2 tbsp finely chopped walnuts
+1 tsp minced fresh cilantro (or 1/4 tsp dried)
 3/4 cup extra-virgin olive oil
 Salt and black pepper
 

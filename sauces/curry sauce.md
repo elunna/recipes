@@ -1,6 +1,6 @@
 # Curry Sauce
 ---
-Yield: 2 cups
+Yield: 2 cup
 Prep time: 30 min
 
 ## Ingredients
@@ -11,7 +11,7 @@ Prep time: 30 min
 1 clove garlic, minced
 1 1/2 tsp yellow curry powder
 1/2 tsp red curry powder (or cayenne pepper for spice)
-2 cups full-fat coconut milk
+2 cup full-fat coconut milk
 grated zest and juice of 1/2 lime
 1/2 tsp salt
 pinch of pepper
@@ -45,7 +45,7 @@ before serving.)
 
 
 Like your curry on the hotter side?
-Substitute 1/2 teaspoon cayenne pepper
+Substitute 1/2 tsp cayenne pepper
 for the red curry powder, or simply
 add the same amount of cayenne
 along with the curry powder. This

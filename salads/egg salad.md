@@ -6,10 +6,10 @@ Prep time:
 ## Ingredients
 8 hard boiled eggs, cooled and peeled
 1/2 cup mayonnaise
-1 1/2 teaspoons Dijon mustard
+1 1/2 tsp Dijon mustard
 1 green onion, thinly sliced
 1 stalk celery, finely diced
-2 teaspoons chopped fresh dill (or 1/2 teaspoon dried dill)
+2 tsp chopped fresh dill (or 1/2 tsp dried dill)
 salt and black pepper to taste
 
 ## Instructions

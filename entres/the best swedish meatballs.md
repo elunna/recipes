@@ -4,32 +4,32 @@ Yield: 6 servings
 
 ## Ingredients
 ### Meatballs
-1 pound ground beef
+1 lb ground beef
 1/4 cup panko bread crumbs
-1 tablespoon parsley, chopped
-1/4 teaspoon ground allspice
-1/4 teaspoon ground nutmeg
-¼ cup onion, finely chopped
-½ teaspoon garlic powder
-⅛ teaspoon pepper
-½ teaspoon salt
+1 tbsp parsley, chopped
+1/4 tsp ground allspice
+1/4 tsp ground nutmeg
+1/4 cup onion, finely chopped
+1/2 tsp garlic powder
+1/8 tsp pepper
+1/2 tsp salt
 1 egg
-1 tablespoon olive oil
-1 tablespoon butter
+1 tbsp olive oil
+1 tbsp butter
 
 ### Sauce
-4 tablespoons butter
-3 tablespoons flour
-2 cups beef broth
+4 tbsp butter
+3 tbsp flour
+2 cup beef broth
 1 cup heavy cream
-1 tablespoon Worcestershire sauce
-1 teaspoon Dijon mustard
+1 tbsp Worcestershire sauce
+1 tsp Dijon mustard
 Salt and pepper to taste
 
 ## Instructions
-1. In a medium-sized bowl, combine 1 pound ground beef, 1/4 cup panko bread crumbs, 1 tablespoon parsley, 1/4 teaspoon ground allspice, 1/4 teaspoon ground nutmeg, ¼ cup onion, ½ teaspoon garlic powder, ⅛ teaspoon pepper, ½ teaspoon salt, and 1 egg. Mix until combined.
-2. Roll into 12 large meatballs or 20 small meatballs. In a large skillet, heat 1 tablespoon olive oil and 1 tablespoon butter. Add the meatballs and cook, turning continuously until brown on each side and cooked throughout. Transfer to a plate and cover with foil.
-3. Add 4 tablespoons butter and 3 tablespoons flour to the skillet and whisk until it turns brown. Slowly stir in 2 cups beef broth and 1 cup heavy cream. Add 1 tablespoon Worcestershire sauce and 1 teaspoon Dijon mustard and bring to a simmer until the sauce starts to thicken. Salt and pepper to taste.
+1. In a medium-sized bowl, combine 1 lb ground beef, 1/4 cup panko bread crumbs, 1 tbsp parsley, 1/4 tsp ground allspice, 1/4 tsp ground nutmeg, 1/4 cup onion, 1/2 tsp garlic powder, 1/8 tsp pepper, 1/2 tsp salt, and 1 egg. Mix until combined.
+2. Roll into 12 large meatballs or 20 small meatballs. In a large skillet, heat 1 tbsp olive oil and 1 tbsp butter. Add the meatballs and cook, turning continuously until brown on each side and cooked throughout. Transfer to a plate and cover with foil.
+3. Add 4 tbsp butter and 3 tbsp flour to the skillet and whisk until it turns brown. Slowly stir in 2 cup beef broth and 1 cup heavy cream. Add 1 tbsp Worcestershire sauce and 1 tsp Dijon mustard and bring to a simmer until the sauce starts to thicken. Salt and pepper to taste.
 4. Add the meatballs back to the skillet and simmer for another 1-2 minutes. Serve over egg noodles or rice.
 
 

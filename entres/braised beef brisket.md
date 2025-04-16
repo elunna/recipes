@@ -3,14 +3,14 @@
 Yield: 2 servings
 
 ## Ingredients
-1 tablespoon salt
-1 teaspoon black pepper
-1 1/2 pounds beef brisket, trimmed
-3 tablespoons cooking fat
+1 tbsp salt
+1 tsp black pepper
+1 1/2 lb beef brisket, trimmed
+3 tbsp cooking fat
 1/2 medium onion, peeled and quartered
 4 cloves garlic, peeled
 2 sprigs fresh thyme
-5 cups Beef Bone Broth (page 178) or water
+5 cup Beef Bone Broth (page 178) or water
 
 ## Instructions
 1. PREHEAT the oven to 350°F.
@@ -35,4 +35,4 @@ the same pan for stovetop and oven, it doesn’t create any more dishes to wash)
 
 ### FOR THE SLOW COOKER
 This is the perfect dish to prep in the morning — you'll have dinner waiting for you as soon as you walk in the door from work.
-Add all ingredients to the slow cooker, covering with broth or water just to the top of the meat (it should not require the full 5 cups). Cover and cook over low heat for 8 to 9 hours. If you have the time, follow the recipe instructions and brown the brisket on the stovetop first for extra flavor.
+Add all ingredients to the slow cooker, covering with broth or water just to the top of the meat (it should not require the full 5 cup). Cover and cook over low heat for 8 to 9 hours. If you have the time, follow the recipe instructions and brown the brisket on the stovetop first for extra flavor.

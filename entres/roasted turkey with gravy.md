@@ -4,23 +4,23 @@ Yield:
 
 ## Ingredients
 ### BRINE AND TURKEY
-8- to 10-pound turkey
-5 quarts hot tap water
+8- to 10-lb turkey
+5 qt hot tap water
 1 cup salt
-2 cups apple juice
-1 tablespoon black peppercorns
+2 cup apple juice
+1 tbsp black peppercorns
 2 bay leaves, torn in half
 1 orange, quartered
 2 lemons, quartered
 3 sprigs fresh thyme
 3 sprigs fresh rosemary
-3 quarts ice
+3 qt ice
 
 ### LEMON BROTH AND TURKEY FIXINGS
-3 cups chicken broth
+3 cup chicken broth
 Juice of 2 lemons
-2 teaspoons salt
-1 teaspoon black pepper
+2 tsp salt
+1 tsp black pepper
 1 apple, peeled and cored
 2 carrots, peeled and cut into 1-inch pieces
 1 white onion, peeled and quartered
@@ -30,22 +30,22 @@ Leaves of 2 sprigs fresh rosemary
 
 
 ### GRAVY
-2 tablespoons cooking fat
+2 tbsp cooking fat
 Neck and giblets from the turkey
 1 large onion, diced
 1 celery rib, diced
 1 carrot, diced
-2 cups chicken broth (page 177)
-1/2 teaspoon salt
-1/4 teaspoon black pepper
-2 tablespoons pan drippings (or clarified butter/ghee)
-3 tablespoons arrowroot powder
+2 cup chicken broth (page 177)
+1/2 tsp salt
+1/4 tsp black pepper
+2 tbsp pan drippings (or clarified butter/ghee)
+3 tbsp arrowroot powder
 
 ## Instructions
 1. IF you’ve bought a frozen turkey, make sure
 it’s completely thawed before brining. (Allow
 approximately one day of thawing in the refrig-
-erator for every 5 pounds of turkey.) 
+erator for every 5 lb of turkey.) 
 2. Remove the
 neck and giblets (usually contained in a bag)
 from the turkey’s cavity and save them in the
@@ -56,7 +56,7 @@ dissolve. Continue to whisk while adding the
 apple juice, peppercorns, and bay leaves. Juice
 the orange and lemons into the brine. Add the
 thyme and rosemary and mix well. Whisk in the
-ice, adding 1 quart at a time.
+ice, adding 1 qt at a time.
 4. PLACE the thawed turkey in a large pot or a
 plastic brining bag and cover with the brine.
 Refrigerate the brining turkey for 12 to 24 hours.
@@ -122,7 +122,7 @@ the turkey is out of the oven.
 
 CAREFULLY pour the turkey pan drippings
 into a pot with the gravy mixture (or add
-2 tablespoons of clarified butter or ghee, if the
+2 tbsp of clarified butter or ghee, if the
 drippings prove hard to transfer). Return the
 gravy to a pot on medium heat and bring to a
 simmer.

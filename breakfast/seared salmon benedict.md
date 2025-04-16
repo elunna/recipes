@@ -3,7 +3,7 @@
 Yield: 2 servings
 
 ## Ingredients
-2 salmon fillets (5 ounces each), skin removed
+2 salmon fillets (5 oz each), skin removed
 1 tsp salt
 1/2 tsp black pepper
 3 tbsp cooking fat

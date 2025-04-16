@@ -10,7 +10,7 @@ Cooking spray
 1/2 cup packed brown sugar
 2 large eggs
 2 tsp. pure vanilla extract
-2 cups all-purpose flour
+2 cup all-purpose flour
 1 tsp. ground cinnamon
 3/4 tsp. baking powder
 1/2 tsp. kosher salt

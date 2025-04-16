@@ -3,15 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-1 pound ground chicken thigh
+1 lb ground chicken thigh
 1 large egg, beaten
 1/4 onion, finely chopped
 2 cloves garlic, minced
-2 teaspoons minced fresh oregano,
-(or 1 teaspoon dried oregano)
-1 teaspoon salt
-1/2 teaspoon black pepper
-2 tablespoons cooking fat, plus
+2 tsp minced fresh oregano,
+(or 1 tsp dried oregano)
+1 tsp salt
+1/2 tsp black pepper
+2 tbsp cooking fat, plus
 more if needed
 
 ## Instructions
@@ -57,12 +57,12 @@ soggy noodles), and serve.
 While it’s not necessary, if you stock
 grain-free flours in your pantry, you could
 add %4 cup of almond flour or
-2 tablespoons of coconut flour to your
+2 tbsp of coconut flour to your
 meat mixture to make your meatballs
 more dense in texture. Change the flavor
 of this dish by swapping out the oregano
 for fresh rosemary, sage, or thyme. Or
-add 2 tablespoons of your favorite hot
+add 2 tbsp of your favorite hot
 sauce to the mixture and serve with
 our Ranch Dressing (page 316). These
 also reheat like a dream, so double the

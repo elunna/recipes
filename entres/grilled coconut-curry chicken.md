@@ -3,15 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-3 tablespoons cooking fat
+3 tbsp cooking fat
 1/2 onion, finely diced
 2 cloves garlic, minced
-1 tablespoon yellow curry powder
+1 tbsp yellow curry powder
 1 cup canned crushed tomatoes
 1/2 cup coconut cream (see page 178)
-1 teaspoon salt
-1/2 teaspoon black pepper
-1 1/2 pounds bone-in, skin-on, split
+1 tsp salt
+1/2 tsp black pepper
+1 1/2 lb bone-in, skin-on, split
 chicken breasts (2 pieces)
 1 lime, quartered
 

@@ -8,13 +8,13 @@ Yield:
 1 cup diced zucchini
 1 cup diced yellow squash
 1 cup diced eggplant
-1/2 teaspoon salt
-1/2 teaspoon black pepper
+1/2 tsp salt
+1/2 tsp black pepper
 1/2 cup finely diced green bell pepper
 1/2 cup finely diced red bell pepper
 2 cloves garlic, minced
 1 cup Tomato Sauce (page 324)
-1 teaspoon balsamic vinegar
+1 tsp balsamic vinegar
 3 fresh basil leaves, roughly chopped
 (optional)
 

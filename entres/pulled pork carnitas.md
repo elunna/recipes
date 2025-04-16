@@ -3,20 +3,20 @@
 Yield: 2 servings
 
 ## Ingredients
-1 1/2 tablespoons salt
-1 teaspoon black pepper
-2 pounds pork butt, cut into 4-inch cubes
-2 tablespoons cooking fat
+1 1/2 tbsp salt
+1 tsp black pepper
+2 lb pork butt, cut into 4-inch cubes
+2 tbsp cooking fat
 1/2 medium onion, roughly chopped
 3 cloves garlic, minced
-1/2 teaspoon chili powder
-1/4 teaspoon ground cinnamon
+1/2 tsp chili powder
+1/4 tsp ground cinnamon
 1/4 cup sliced (1/2-inch pieces) green onions
 Juice of 1/2 lime
 
 ## Instructions
 1. PREHEAT the oven to 350°F.
-2. MIX 1 tablespoon of the salt and all of the pepper in a bowl.
+2. MIX 1 tbsp of the salt and all of the pepper in a bowl.
 Use to season the pork butt evenly.
 3. IN a heavy pot or Dutch oven over medium heat, melt the
 cooking fat, swirling to coat the bottom of the pan. When
@@ -34,7 +34,7 @@ hour. The pork should be fork-tender when done.
 6. TRANSFER the pork to a bowl and shred with a fork or two,
 discarding any excess fat. Incorporate the cooking liquid
 from the pot, then add the green onions and lime juice.
-Season with the remaining 1/2 tablespoon salt.
+Season with the remaining 1/2 tbsp salt.
 
 
 ### MAKE IT A MEAL: 

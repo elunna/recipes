@@ -13,8 +13,8 @@ Image:
 1/2 cup plain non fat Greek yogurt
 1 cup raspberries fresh or frozen
 1 large frozen banana cut into chunks
-1 tablespoon honey
-1/2 teaspoon vanilla extract
+1 tbsp honey
+1/2 tsp vanilla extract
 1/2 cup ice
 
 ## Instructions

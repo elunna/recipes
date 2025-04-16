@@ -6,8 +6,8 @@ Prep time: 60+ min
 ## Ingredients
 1 kg red currants
 4 dl water
-3 dl strösocker/powdered sugar (per liter of rounded juice)
-1 krm natriumbensoat/sodium benzoate (per liter of finished juice)
+3 dl strösocker/powdered sugar (per L of rounded juice)
+1 krm natriumbensoat/sodium benzoate (per L of finished juice)
 
 ## Instructions
 

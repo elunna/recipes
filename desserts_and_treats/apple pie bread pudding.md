@@ -11,7 +11,7 @@ The apples: Tart, crisp Granny Smith apples provide a delicious contrast to the 
 
 The dairy: A combination of heavy cream, whole milk, and melted butter lends richness and moisture to this decadent dessert. To cut back on the fat, you can use light cream and reduced-fat milk, but note that the dessert will be slightly drier and less rich.
 
-The spices: Cinnamon, allspice, and nutmeg bring serious apple pie energy to this recipe. For the best flavor, we recommend freshly grated nutmeg, but you can use pre-ground in a pinch. In place of the individual spices, you can swap in one teaspoon of store-bought apple pie spice if you prefer.
+The spices: Cinnamon, allspice, and nutmeg bring serious apple pie energy to this recipe. For the best flavor, we recommend freshly grated nutmeg, but you can use pre-ground in a pinch. In place of the individual spices, you can swap in one tsp of store-bought apple pie spice if you prefer.
 
 ## Bread Pudding Dos and Don'ts
 Do use stale bread: Stale bread will absorb the most liquid, leaving you with the best flavor and texture. If your bread is very fresh, we recommend cutting it into chunks, tossing it on a baking sheet, and letting it dry out in a 300 degree Fahrenheit oven until no longer soft, 10 to 15 minutes.
@@ -23,19 +23,19 @@ Don't rush the process: It's important to let the bread mixture sit for at least
 Do serve warm: This bread pudding is best served warm from the oven, preferably with a scoop of vanilla ice cream on the side. If you do need to bake it ahead of time, cover and refrigerate the bread pudding, then let it come to room temperature before reheating.
 
 ## Ingredients
-6 tablespoons unsalted butter, plus more for dish
+6 tbsp unsalted butter, plus more for dish
 1 cup heavy cream
 1 cup whole milk
 3 large eggs
-8 ounces brioche, cut into 1-inch cubes (6 cups)
-⅔ cup light brown sugar
-⅓ cup granulated sugar
-2 teaspoons pure vanilla
-½ teaspoon ground cinnamon
-¼ teaspoon ground allspice
-¼ teaspoon freshly grated nutmeg
-½ teaspoon kosher salt
-2 Granny Smith apples, peeled, quartered, cored, and sliced crosswise in ¼-inch thick pieces (2 cups)
+8 oz brioche, cut into 1-inch cubes (6 cup)
+2/3 cup light brown sugar
+1/3 cup granulated sugar
+2 tsp pure vanilla
+1/2 tsp ground cinnamon
+1/4 tsp ground allspice
+1/4 tsp freshly grated nutmeg
+1/2 tsp kosher salt
+2 Granny Smith apples, peeled, quartered, cored, and sliced crosswise in 1/4-inch thick pieces (2 cup)
 Turbinado sugar, for sprinkling (optional)
 Vanilla ice cream, for serving
 

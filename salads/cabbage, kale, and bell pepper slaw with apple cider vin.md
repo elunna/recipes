@@ -6,7 +6,7 @@ Yield:
 ### FOR THE VINAIGRETTE
 3/4 cup extra-virgin olive oil
 1/4 cup apple cider vinegar
-2 tablespoons finely chopped fresh parsley
+2 tbsp finely chopped fresh parsley
 1 clove garlic, minced
 Salt and black pepper
 
@@ -18,9 +18,9 @@ Salt and black pepper
 cut into very thin strips
 1/2 cup shredded carrots
 1/2 cup julienned apple
-2 tablespoons slivered almonds
-1 teaspoon salt
-1/2 teaspoon black pepper
+2 tbsp slivered almonds
+1 tsp salt
+1/2 tsp black pepper
 
 ## Instructions
 

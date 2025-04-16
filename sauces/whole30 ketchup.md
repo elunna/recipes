@@ -6,9 +6,9 @@ Yield:
 1 cup tomato paste
 1/2 cup apple cider
 1/2 cup apple cider vinegar
-1 teaspoon garlic powder
-1/2 teaspoon salt
-1/8 teaspoon ground cloves (optional)
+1 tsp garlic powder
+1/2 tsp salt
+1/8 tsp ground cloves (optional)
 
 ## Instructions
 1. HEAT a medium saucepan over medium heat. Add the
@@ -34,7 +34,7 @@ tainer; itll keep for up to 2 weeks.
 Don’t expect the familiar “Heinz 57”
 from this recipe—grocery store ketchup is
 thick and sweet thanks to sugar—nearly
-4 grams per tablespoon. In fact, Heinz 57
+4 g per tbsp. In fact, Heinz 57
 uses both high-fructose corn syrup and
 corn syrup to sweeten their paste. We
 could use date paste to make our ketchup

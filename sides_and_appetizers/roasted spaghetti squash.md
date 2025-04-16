@@ -4,11 +4,11 @@ Yield:
 
 ## Ingredients
 1 whole spaghetti squash
-2 tablespoons extra-virgin olive oil
-2 teaspoons fresh thyme leaves
-(or 1/4 teaspoon dried)
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+2 tbsp extra-virgin olive oil
+2 tsp fresh thyme leaves
+(or 1/4 tsp dried)
+1/2 tsp salt
+1/4 tsp black pepper
 
 ## Instructions
 1. PREHEAT the oven to 425°F. Line a baking sheet with foil

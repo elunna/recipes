@@ -10,14 +10,14 @@ Image:
 
 ## Ingredients
 
-1.5 cups rolled oats
-1/3 cups flax seeds
-1/2 cups chopped coconut flakes
-1/2 cups raisins
-1/2 cups chopped walnuts
-1/2 cups cashews
-2-3 tablespoons honey
-a teaspoon flakey salt
+1.5 cup rolled oats
+1/3 cup flax seeds
+1/2 cup chopped coconut flakes
+1/2 cup raisins
+1/2 cup chopped walnuts
+1/2 cup cashews
+2-3 tbsp honey
+a tsp flakey salt
 cinnamon
 
 ## Instructions

@@ -5,16 +5,16 @@ Prep time: 1 hr 30 mins
 
 ## Ingredients
 Easiest Ever Pastry Dough
-1 1/4 cups all-purpose flour
+1 1/4 cup all-purpose flour
 1 Tbsp. sugar
 1/2 tsp. Kosher salt
 1/2 cup cold unsalted butter, cut up (1 stick)
 1 Tbsp. distilled white vinegar
-1 Tbsp. ice-cold water, plus 1 to 2 teaspoon if necessary
+1 Tbsp. ice-cold water, plus 1 to 2 tsp if necessary
 
 Sweet and Salted Caramel Nut Pie
-4 cups mixed pecans, walnuts and hazelnuts, toasted
-1 1/2 cups sugar
+4 cup mixed pecans, walnuts and hazelnuts, toasted
+1 1/2 cup sugar
 1/2 cup water
 3 Tbsp. light corn syrup
 6 Tbsp. unsalted butter, cut into small pieces

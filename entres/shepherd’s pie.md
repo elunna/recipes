@@ -5,20 +5,20 @@ Yield:
 ## Ingredients
 2 medium sweet potatoes, peeled and
 large-diced
-4 cups cold water
-4 tablespoons clarified butter or ghee
+4 cup cold water
+4 tbsp clarified butter or ghee
 1/2 cup coconut milk
 1 onion, finely chopped
 2 stalks celery, finely chopped
 1 carrot, peeled and finely chopped
-1 pound ground meat (beef, lamb, bison)
+1 lb ground meat (beef, lamb, bison)
 2 cloves garlic, minced
-1 teaspoon salt
-1/2 teaspoon black pepper
+1 tsp salt
+1/2 tsp black pepper
 1 sprig fresh thyme leaves (or
-1/4 teaspoon dried thyme)
-2 teaspoons fresh oregano leaves
-(or 1/2 teaspoon dried)
+1/4 tsp dried thyme)
+2 tsp fresh oregano leaves
+(or 1/2 tsp dried)
 
 
 ## Instructions
@@ -27,13 +27,13 @@ large-diced
 and bring to a boil. Boil until the potatoes are fork-tender,
 about 10 minutes.
 3.  Drain the water from the pot, add
-2 tablespoons of the butter and the coconut milk (away
+2 tbsp of the butter and the coconut milk (away
 from the heat). 
 4. Mash the potatoes with a potato masher,
 large kitchen fork, or immersion blender, or blend them in
 a food processor for a creamier texture. Transfer the pota-toes to a bowl and set aside.
 5. RETURN the same pot to the stove on medium heat, and
-melt the remaining 2 tablespoons of butter. 
+melt the remaining 2 tbsp of butter. 
 6. Add the onions,
 celery, and carrots and cook, stirring, for 5 minutes. 
 7. Add the

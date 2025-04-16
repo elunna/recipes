@@ -4,13 +4,13 @@ Yield:
 
 ## Ingredients
 
-1 pound Perfect Sausage (page 162)
-1 tablespoon cooking fat
-2 cups button, crimini, or portabella mushrooms,
+1 lb Perfect Sausage (page 162)
+1 tbsp cooking fat
+2 cup button, crimini, or portabella mushrooms,
 thinly sliced
 1 cup diced peeled apple
-2 cups peeled, seeded, and finely diced acorn squash
-1 tablespoon poultry seasoning
+2 cup peeled, seeded, and finely diced acorn squash
+1 tbsp poultry seasoning
 1/4 cup pumpkin seeds or chopped pecans
 Salt and black pepper
 

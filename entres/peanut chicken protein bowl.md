@@ -18,16 +18,16 @@ Juice of 1 lime
 1 Tbsp. honey
 1 Tbsp. reduced-sodium soy sauce
 1 Tbsp. toasted sesame oil
-4 cups cooked brown rice
+4 cup cooked brown rice
 1 avocado, thinly sliced
-2 cups baby spinach
+2 cup baby spinach
 1 Tbsp. chopped fresh cilantro
 1 tsp. toasted sesame seeds
 
 ## Instructions
-1. Preheat oven to 425°. On a large baking sheet, toss potatoes and onion with 1 tablespoon olive oil; season with salt and pepper. Bake until tender, 20 to 25 minutes.
-2. Meanwhile, in a large skillet over medium-high heat, heat 1 tablespoon olive oil. Season chicken with garlic powder, ginger, salt, and pepper. Cook chicken, turning occasionally, until golden and no longer pink, about 8 minutes per side. Transfer to a cutting board and let rest 10 minutes, then thinly slice.
-3. In a small bowl, whisk garlic, lime juice, peanut butter, honey, and soy sauce until combined. Whisk in sesame oil and remaining 1 tablespoon olive oil until smooth.
+1. Preheat oven to 425°. On a large baking sheet, toss potatoes and onion with 1 tbsp olive oil; season with salt and pepper. Bake until tender, 20 to 25 minutes.
+2. Meanwhile, in a large skillet over medium-high heat, heat 1 tbsp olive oil. Season chicken with garlic powder, ginger, salt, and pepper. Cook chicken, turning occasionally, until golden and no longer pink, about 8 minutes per side. Transfer to a cutting board and let rest 10 minutes, then thinly slice.
+3. In a small bowl, whisk garlic, lime juice, peanut butter, honey, and soy sauce until combined. Whisk in sesame oil and remaining 1 tbsp olive oil until smooth.
 4. Divide rice among bowls. Top with potato mixture, chicken, avocado, and spinach. Sprinkle with cilantro and sesame seeds. Drizzle with dressing.
 
 ## Notes

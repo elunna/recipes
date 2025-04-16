@@ -9,25 +9,25 @@ Prep time:
 
 Marinade
 1 cup plain yogurt
-2 tablespoons lemon juice
-2 teaspoons ground cumin
-2 teaspoons ground red pepper
-2 teaspoons black pepper
-1 teaspoon cinnamon
-1 teaspoon salt
+2 tbsp lemon juice
+2 tsp ground cumin
+2 tsp ground red pepper
+2 tsp black pepper
+1 tsp cinnamon
+1 tsp salt
 1 piece minced ginger (1-inch long)
 6 bamboo skewers (6-inch)
 
 Sauce
-1 tablespoon unsalted butter
+1 tbsp unsalted butter
 2 garlic cloves, minced
 1 jalapeno chile, minced
-2 teaspoons ground coriander
-1 teaspoon ground cumin
-1 teaspoon paprika
-1 teaspoon garam masala (buy in Indian market)
-1⁄2 teaspoon salt
-1 (8 ounce) can tomato sauce
+2 tsp ground coriander
+1 tsp ground cumin
+1 tsp paprika
+1 tsp garam masala (buy in Indian market)
+1⁄2 tsp salt
+1 (8 oz) can tomato sauce
 1 cup whipping cream (or coconut milk)
 1⁄4 cup chopped fresh cilantro
 

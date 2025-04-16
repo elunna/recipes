@@ -1,17 +1,17 @@
 # chimichurri
 ---
-Yield: 2 1/2 cups
+Yield: 2 1/2 cup
 
 ## Ingredients
 1/4 cup red wine vinegar
 1/4 cup lime juice
 2 cloves garlic, minced
 1/2 shallot, minced
-1 1/2 cups extra-virgin olive oil
+1 1/2 cup extra-virgin olive oil
 1/4 cup fresh cilantro
 1/4 cup fresh parsley leaves
-1/2 teaspoon salt
-1/2 teaspoon black pepper
+1/2 tsp salt
+1/2 tsp black pepper
 
 ## Instructions
 1. COMBINE the vinegar, lime juice, garlic, and shallot in a
@@ -34,7 +34,7 @@ over-fill), then cover the top tightly with plastic wrap. When
 the sauce is frozen, remove the plastic wrap, pop out the
 cubes, and transfer them to a resealable plastic bag. These
 will keep for up to 6 months in the freezer, and each cube is
-about 1 ounce.
+about 1 oz.
 
 ## Notes
 

@@ -5,11 +5,11 @@ Yield:
 ## Ingredients
 1/2 cup extra-virgin olive oil
 Grated zest and juice of 1 lemon
-1 tablespoon fresh rosemary
-1 tablespoon fresh thyme
-1 teaspoon salt
-1/2 teaspoon black pepper
-1 bone-in leg of lamb (6 to 8 pounds)
+1 tbsp fresh rosemary
+1 tbsp fresh thyme
+1 tsp salt
+1/2 tsp black pepper
+1 bone-in leg of lamb (6 to 8 lb)
 
 
 ## Instructions

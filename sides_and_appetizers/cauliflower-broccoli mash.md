@@ -3,15 +3,15 @@
 Yield: 
 
 ## Ingredients
-1 1/2 cups chicken or vegetable broth
+1 1/2 cup chicken or vegetable broth
 1 head cauliflower, cut into florets
 2 bunches broccoli, cut into florets
 3 cloves garlic, minced
 1 cup coconut milk
-2 tablespoons clarified butter or ghee
-1 teaspoon salt
-1/4 teaspoon black pepper
-1 tablespoon minced fresh parsley
+2 tbsp clarified butter or ghee
+1 tsp salt
+1/4 tsp black pepper
+1 tbsp minced fresh parsley
 
 
 ## Instructions

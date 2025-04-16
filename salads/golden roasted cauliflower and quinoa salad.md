@@ -6,28 +6,28 @@ Prep time: 15 min
 ## Ingredients
 Dressing:
 1/4 cup olive oil
-1/2 tablespoon tahini
-1 tablespoon fresh lemon juice
-2 teaspoons balsamic vinegar
-1/8 teaspoon salt
-1/4 teaspoon turmeric
-1/4 teaspoon ground curry
-1 teaspoon honey
+1/2 tbsp tahini
+1 tbsp fresh lemon juice
+2 tsp balsamic vinegar
+1/8 tsp salt
+1/4 tsp turmeric
+1/4 tsp ground curry
+1 tsp honey
 
 Roasted Cauliflower:
 large head cauliflower, chopped
-2 tablespoons olive oil
-2 teaspoons garlic powder
-1 teaspoon turmeric
-1/2 teaspoon curry powder
-1/2 teaspoon ground cumin
-1/8 teaspoon paprika
-1/8 teaspoon cinnamon
+2 tbsp olive oil
+2 tsp garlic powder
+1 tsp turmeric
+1/2 tsp curry powder
+1/2 tsp ground cumin
+1/8 tsp paprika
+1/8 tsp cinnamon
 salt and pepper, to taste
 
 For the salad:
 1 cup uncooked quinoa
-2 cups water
+2 cup water
 1 15 oz. can garbanzo beans, rinsed
 1/3 cup shelled pistachios
 1/4 cup chopped parsley
@@ -39,7 +39,7 @@ Optional Ingredients:
 ## Instructions
 1. Preheat the oven to 400ºF and spray a baking sheet with non-stick cooking spray.
 2. Next, mix the garlic powder, turmeric, curry powder, cumin, paprika, cinnamon, salt and pepper in a bowl and mix. Set aside.
-3. Spread the chopped cauliflower out on the baking sheet, drizzle with 2 tablespoons of olive oil and sprinkle with the spices.
+3. Spread the chopped cauliflower out on the baking sheet, drizzle with 2 tbsp of olive oil and sprinkle with the spices.
 4. Place the cauliflower in the oven and bake for 20 minutes.
 5. While the cauliflower is baking, prepare the dressing by adding all ingredients to a mason jar. Close the jar tight and shake until all the ingredients are combined. Set aside. 
 6. **To prepare the quinoa**, add the quinoa and water to a small saucepan and bring to a boil over high heat.

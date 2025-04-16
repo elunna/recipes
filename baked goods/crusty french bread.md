@@ -4,17 +4,17 @@ Yield: 2 loaves
 Prep time: 50 min
 
 ## Ingredients
-2 cups warm water
-1 tablespoon yeast
-1 tablespoon vegetable oil
-1 tablespoon sugar
-2 teaspoons salt
-5 - 5 1/2 cups bread flour
+2 cup warm water
+1 tbsp yeast
+1 tbsp vegetable oil
+1 tbsp sugar
+2 tsp salt
+5 - 5 1/2 cup bread flour
 
 ## Instructions
 1. Dissolve yeast in warm water (110 degrees) and sugar in large bowl; allow yeast to proof or foam (about 10 minutes).
-2. Add salt, oil, and 3 cups flour; beat for 2 minutes.
-3. Stir in 2 cups flour to make a stiff dough.
+2. Add salt, oil, and 3 cup flour; beat for 2 minutes.
+3. Stir in 2 cup flour to make a stiff dough.
 4. Knead until smooth and elastic, about 10 minutes.
 5. Place in oiled bowl, turn dough to coat all sides, cover and let rise until doubled.
 6. Punch down and divide in half.

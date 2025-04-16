@@ -4,12 +4,12 @@ Yield:
 
 ## Ingredients
 1/4 cup red wine vinegar
-2 tablespoons minced fresh oregano (or 2 teaspoons dried)
+2 tbsp minced fresh oregano (or 2 tsp dried)
 1 clove garlic, minced
-1 teaspoon mustard powder
+1 tsp mustard powder
 3/4 cup extra-virgin olive oil
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+1/2 tsp salt
+1/4 tsp black pepper
 
 
 ## Instructions

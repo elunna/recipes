@@ -3,15 +3,15 @@
 Yield: 
 
 ## Ingredients
-3 tablespoons extra-virgin olive oil
-1/2 pound Brussels sprouts, trimmed
+3 tbsp extra-virgin olive oil
+1/2 lb Brussels sprouts, trimmed
 and cut in half
 1/2 red onion, cut into 1-inch pieces
-1 teaspoon dried sage
-1/2 teaspoon nutmeg
-1/2 teaspoon black pepper
-1/4 teaspoon salt
-3 cups diced peeled butternut squash
+1 tsp dried sage
+1/2 tsp nutmeg
+1/2 tsp black pepper
+1/4 tsp salt
+3 cup diced peeled butternut squash
 
 
 ## Instructions
@@ -35,7 +35,7 @@ Crusted Pork Tenderloin (page 252).
 ## Notes
 
 One large squash usually yields 2 1/2 to
-3 cups, so just buy a big one and call it
+3 cup, so just buy a big one and call it
 good—no need to measure precisely for
 this recipe. You can also substitute any
 winter squash for butternut: this dish

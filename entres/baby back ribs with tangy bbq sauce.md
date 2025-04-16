@@ -3,19 +3,19 @@
 Yield: 2 servings
 
 ## Ingredients
-2 pounds baby back ribs
+2 lb baby back ribs
 1 cup chicken broth (page 177) or water
-2 cups Tangy BBQ Sauce (page 322)
+2 cup Tangy BBQ Sauce (page 322)
 
 ### FOR THE RUB
-2 tablespoons dried oregano
-1 teaspoon mustard powder
-1 teaspoon onion powder
-1 teaspoon garlic powder
-1 tablespoon paprika
-1/2 teaspoon cumin
-1 teaspoon salt
-1 teaspoon black pepper
+2 tbsp dried oregano
+1 tsp mustard powder
+1 tsp onion powder
+1 tsp garlic powder
+1 tbsp paprika
+1/2 tsp cumin
+1 tsp salt
+1 tsp black pepper
 
 
 ## Instructions
@@ -29,7 +29,7 @@ for 3 to 24 hours (the longer the better).
 chicken broth or water into the dish and cover with foil. Bake
 for 1 hour, or until the meat pulls back from the rib bones.
 4. PREHEAT a grill to medium heat (350°F). Place the ribs
-1 teaspoon onion powderdirectly over the heat and grill until nicely charred, 6 to 8
+1 tsp onion powderdirectly over the heat and grill until nicely charred, 6 to 8
 minutes on each side. If you don’t have a grill, increase the
 oven temperature to 475°F and cook the ribs for 10 minutes
 on each side.

@@ -3,14 +3,14 @@
 Yield: 
 
 ## Ingredients
-2 teaspoons paprika
-1 teaspoon chili powder
-1 teaspoon garlic powder
-1 teaspoon onion powder
-1 teaspoon salt
-1/2 teaspoon black pepper
+2 tsp paprika
+1 tsp chili powder
+1 tsp garlic powder
+1 tsp onion powder
+1 tsp salt
+1/2 tsp black pepper
 1/2 lime, juiced
-1 1/2 pounds pork shoulder (boneless)
+1 1/2 lb pork shoulder (boneless)
 1 butternut squash, 1-inch diced
 1 bunch kale, stems removed, leaves
 chopped
@@ -62,7 +62,7 @@ a double batch, freeze the pork in 1-cup
 servings so you can easily thaw it for
 future meals. You can serve the leftover
 pork with our Tangy BBQ sauce (page
-322) in lettuce cups, over a salad with our
+322) in lettuce cup, over a salad with our
 Latin Vinaigrette (page 330), topped with
 fried eggs and Chimichurri (page 306),
 or added to a Vegetable Frittata (page

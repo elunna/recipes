@@ -5,10 +5,10 @@ Prep time: 25 min
 
 ## Ingredients
 1/2 cup pecans
-1 package (14 to 16 ounces) all-butter puff pastry, thawed
+1 package (14 to 16 oz) all-butter puff pastry, thawed
 Unbleached all-purpose flour, for dusting
-2 tablespoons Dijon mustard
-1 round wheel (about 6 inches) Brie (1 pound)
+2 tbsp Dijon mustard
+1 round wheel (about 6 inches) Brie (1 lb)
 Boozy Fruit, for serving
 Apple wedges and baguette slices, for serving
 
@@ -16,8 +16,8 @@ Boozy Fruit:
 1/2 cup dried Calimyrna figs, coarsely chopped
 1/2 cup dried tart California apricots, coarsely chopped
 1/2 cup dried pears, coarsely chopped
-¼ cup raisins
-2 cups port wine
+1/4 cup raisins
+2 cup port wine
 1 cinnamon stick
 Large pinch of kosher salt
 
@@ -30,7 +30,7 @@ For boozy fruit: Combine all ingredients in a small saucepan. Bring to a boil; c
 
 3. Cut pastry in half crosswise; pinch cut edges to seal. Roll out one half to an 8-inch square.
 
-4. Brush 1 tablespoon Dijon on one side of Brie. Place in center of rolled-out pastry, mustard-side down. Brush remaining 1 tablespoon Dijon on top of Brie.
+4. Brush 1 tbsp Dijon on one side of Brie. Place in center of rolled-out pastry, mustard-side down. Brush remaining 1 tbsp Dijon on top of Brie.
 
 5. Roll out remaining half of pastry to a 9-inch square. Center over brie and gently press around it to remove any air pockets. Trim pastry, leaving a 1/2-inch border around brie. Transfer to a parchment-lined baking sheet.
 

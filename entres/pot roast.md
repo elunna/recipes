@@ -3,10 +3,10 @@
 Yield: 
 
 ## Ingredients
-1 1/2 pounds beef roast (chuck, boneless
+1 1/2 lb beef roast (chuck, boneless
 short ribs, brisket, top round, rump)
-1 teaspoon salt
-1/2 teaspoon black pepper
+1 tsp salt
+1/2 tsp black pepper
 1 onion, sliced
 3 carrots, unpeeled and cut into
 2-inch pieces
@@ -15,7 +15,7 @@ short ribs, brisket, top round, rump)
 and large-diced
 2 cloves garlic
 2 sprigs thyme
-2 cups beef broth or water
+2 cup beef broth or water
 
 ## Instructions
 1. SET your slow cooker to low heat, and season your roast
@@ -52,7 +52,7 @@ more flavor to your roast by browning the
 meat, onions, and carrots before adding to
 the slow cooker. Set the slow cooker to low
 heat, and season your roast with salt and
-pepper. Melt 2 to 3 tablespoons of clarified
+pepper. Melt 2 to 3 tbsp of clarified
 butter or coconut oil in a large pot (or Dutch
 oven) over medium-high heat. Add the
 onions and (without stirring), sear them for
@@ -61,7 +61,7 @@ spatula and sear the other side for 1 min-
 ute. (Onions should be slightly browned.)
 Remove from the pan, add the carrots,
 repeating the process, until carrots are also
-browned. Add 1 tablespoon of cooking
+browned. Add 1 tbsp of cooking
 fat, and add the roast to the pan. Sear it
 for 1 minute on all sides, until browned.
 Follow the rest of the above instructions.

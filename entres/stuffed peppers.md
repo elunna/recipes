@@ -5,18 +5,18 @@ Yield: 2 servings
 ## Ingredients
 4 red, yellow, or orange bell peppers
 (preferably round in shape)
-3 tablespoons cooking fat
+3 tbsp cooking fat
 1/4 cup finely chopped onion
-2 cloves garlic, minced (or 1 teaspoon
+2 cloves garlic, minced (or 1 tsp
 garlic powder)
 4 kale leaves, stems removed, leaves
 finely chopped
-1 pound ground meat (beef, lamb, bison)
-2 tablespoons tomato paste
-1/4 teaspoon cumin
-1/4 teaspoon chili powder
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+1 lb ground meat (beef, lamb, bison)
+2 tbsp tomato paste
+1/4 tsp cumin
+1/4 tsp chili powder
+1/2 tsp salt
+1/4 tsp black pepper
 1 cup finely chopped peeled winter
 squash (butternut, acorn, etc.)
 

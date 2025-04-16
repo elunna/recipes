@@ -6,15 +6,15 @@ Yield: 2 servings
 1 cup alsamic vinegar
 1 sweet potato, peeled and cut into
 large dice
-3 tablespoons melted ghee, clarified
+3 tbsp melted ghee, clarified
 butter, coconut oil, or extra-virgin
 olive oil
-1/2 pound Brussels sprouts, trimmed
+1/2 lb Brussels sprouts, trimmed
 and cut in half
 1/2 red onion, thinly sliced
 3 cloves garlic, minced
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+1/2 tsp salt
+1/4 tsp black pepper
 
 ## Instructions
 1. PREHEAT the oven to 400°F. Line a baking sheet with
@@ -26,10 +26,10 @@ and simmer until the balsamic is reduced by about half,
 reserve. (You can do this up to a week ahead of time; store
 in a covered container at room temperature.)
 3. WHILE the glaze is reducing, combine the sweet potato
-and 1 tablespoon of the cooking fat in a medium bowl and
+and 1 tbsp of the cooking fat in a medium bowl and
 stir or toss to coat evenly. Spread the coated sweet pota-
 toes on the prepared baking sheet.
-4. MEANWHILE, add the remaining 2 tablespoons of fat to
+4. MEANWHILE, add the remaining 2 tbsp of fat to
 a large skillet over medium-high heat and swirl to coat the
 bottom of the pan. When the fat is hot, add the Brussels
 sprouts and cook, shaking the pan occasionally as they

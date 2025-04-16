@@ -3,15 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-1 pound pork tenderloin
-2 tablespoons mustard powder
-1 tablespoon paprika
-1 tablespoon onion powder
-1 tablespoon garlic powder
-1 1/2 teaspoons salt
-1 1/2 teaspoons black pepper
+1 lb pork tenderloin
+2 tbsp mustard powder
+1 tbsp paprika
+1 tbsp onion powder
+1 tbsp garlic powder
+1 1/2 tsp salt
+1 1/2 tsp black pepper
 1/2 cup chopped walnuts
-3 cups salad greens
+3 cup salad greens
 1/2 cup Balsamic Vinaigrette (page 328)
 
 ## Instructions

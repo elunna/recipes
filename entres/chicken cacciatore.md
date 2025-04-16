@@ -4,30 +4,30 @@ Yield:
 
 ## Ingredients
 
-4 tablespoons cooking fat
-1 pound chicken legs (bone-in, skin-on)
-1/2 pound chicken thighs (boneless)
-1/2 teaspoon salt
-1/2 teaspoon black pepper
+4 tbsp cooking fat
+1 lb chicken legs (bone-in, skin-on)
+1/2 lb chicken thighs (boneless)
+1/2 tsp salt
+1/2 tsp black pepper
 1/2 onion, minced
 1/2 red bell pepper, finely diced
 1 cup mushrooms, sliced
 2 cloves garlic, minced
-1 tablespoon capers, drained
-1 14.5-ounce can diced tomatoes
+1 tbsp capers, drained
+1 14.5-oz can diced tomatoes
 1 cup chicken broth or water
-1 tablespoon fresh basil leaves, rough chopped
+1 tbsp fresh basil leaves, rough chopped
 
 
 ## Instructions
-1. IN a large skillet with high edges, heat 2 tablespoons of
+1. IN a large skillet with high edges, heat 2 tbsp of
 the cooking fat over medium-high heat, swirling to coat
 the bottom of the pan. Season the chicken with the salt and
 pepper and place in the pan. Sear the chicken until golden
 brown, about 3 minutes on each side. Remove the chicken
 from the pan and set aside.
 2. WITH the same pan still on medium-high heat, add the
-remaining 2 tablespoons of cooking fat, onions, and peppers
+remaining 2 tbsp of cooking fat, onions, and peppers
 and sauté for 2 to 3 minutes, until the onion becomes trans-
 lucent. Add the mushrooms and continue to cook, stirring
 for 2 minutes. Add the garlic and stir until aromatic, about 1
@@ -47,7 +47,7 @@ an internal temperature of 160°F, about 30 minutes.
 
 ### WITH A LITTLE PLANNING
 you could buy a 2.5 to
-3 pound whole chicken and use it to make this entire dish.
+3 lb whole chicken and use it to make this entire dish.
 First, roast the chicken using the technique on page 157.
 Strip the meat from the legs and thighs (keep the skin!) and
 refrigerate for later. Then, take the chicken carcass and make

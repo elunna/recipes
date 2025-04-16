@@ -4,21 +4,21 @@ Yield: 6 servings
 Prep time: 15 min
 
 ## Ingredients
-½ cup mayonnaise
-1 tablespoon gluten-free sambal oelek (or more to taste)
-2 tablespoons sesame oil
-1 tablespoon gluten-free soy sauce/coconut aminos
-1 tablespoon honey (optional)
-1 teaspoon fresh lime juice
-½ tablespoon minced ginger
-¾ teaspoon kosher salt
-1 tablespoon black sesame seeds
-½ teaspoon red pepper flakes (optional)
-24 ounces canned tuna (drained and chopped)
-½ cup finely chopped carrots
-½ cup finely chopped green onions
-¼ cup chopped cilantro
-¼ cup dried cranberries
+1/2 cup mayonnaise
+1 tbsp gluten-free sambal oelek (or more to taste)
+2 tbsp sesame oil
+1 tbsp gluten-free soy sauce/coconut aminos
+1 tbsp honey (optional)
+1 tsp fresh lime juice
+1/2 tbsp minced ginger
+3/4 tsp kosher salt
+1 tbsp black sesame seeds
+1/2 tsp red pepper flakes (optional)
+24 oz canned tuna (drained and chopped)
+1/2 cup finely chopped carrots
+1/2 cup finely chopped green onions
+1/4 cup chopped cilantro
+1/4 cup dried cranberries
 
 ## Instructions
 1. In the large bowl, mix together the mayonnaise, sambal oelek, sesame oil, soy sauce, honey, ginger, kosher salt, sesame seeds, and red pepper flakes.

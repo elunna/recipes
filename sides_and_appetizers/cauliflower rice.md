@@ -4,14 +4,14 @@ Yield:
 
 ## Ingredients
 1 large head cauliflower, cut into florets
-3 tablespoons ghee or clarified butter
+3 tbsp ghee or clarified butter
 1/2 onion, finely chopped
 1 carrot, peeled and finely chopped
 2 cloves garlic, minced
 1/2 cup chicken broth
-1 tablespoon minced cilantro
-1/2 teaspoon salt
-1/2 teaspoon black pepper
+1 tbsp minced cilantro
+1/2 tsp salt
+1/2 tsp black pepper
 
 ## Instructions
 1. TO “rice” the cauliflower, place half of the florets in a food
@@ -53,12 +53,12 @@ pan-frying.
 This is another incredibly versatile recipe.
 Make a Moroccan-style rice by adding
 1/4 cup slivered almonds or pine nuts,
-1/2 cup raisins, 1/2 teaspoon ground cumin,
-1/4 teaspoon ground turmeric, and
-1/4 teaspoon ground cinnamon. Make
-rice Asian-style by adding 2 tablespoons
+1/2 cup raisins, 1/2 tsp ground cumin,
+1/4 tsp ground turmeric, and
+1/4 tsp ground cinnamon. Make
+rice Asian-style by adding 2 tbsp
 coconut aminos (a soy sauce substitute,
-see page 320 for details), 1 teaspoon
+see page 320 for details), 1 tsp
 sesame oil, and 2 minced green onions.
 Or make this a complete meal by adding
 a serving of your favorite chopped

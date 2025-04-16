@@ -4,14 +4,14 @@ Yield: 4 servings
 
 ## Ingredients
 Nonstick spray - for the pan
-2 tablespoons unsalted butter - melted
-1 tablespoon lemon juice - freshly squeezed
-1 tablespoon fresh garlic - minced
-1 teaspoon Diamond Crystal kosher salt - or ½ teaspoon of any other salt, including Morton kosher salt
-½ teaspoon red pepper flakes
-2 tablespoons capers - drained
-4 cod fillets - 6 ounces each, 1 inch thick, fresh or frozen
-½ teaspoon paprika
+2 tbsp unsalted butter - melted
+1 tbsp lemon juice - freshly squeezed
+1 tbsp fresh garlic - minced
+1 tsp Diamond Crystal kosher salt - or 1/2 tsp of any other salt, including Morton kosher salt
+1/2 tsp red pepper flakes
+2 tbsp capers - drained
+4 cod fillets - 6 oz each, 1 inch thick, fresh or frozen
+1/2 tsp paprika
 
 ## Instructions
 1. Preheat the oven to 425°F. Lightly spray a baking dish with nonstick spray.

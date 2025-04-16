@@ -3,15 +3,15 @@
 Yield: 2 servings
 
 ## Ingredients
-1 pound cod
-1/2 teaspoon salt
-1/4 teaspoon black pepper
-2 tablespoons cooking fat
+1 lb cod
+1/2 tsp salt
+1/4 tsp black pepper
+2 tbsp cooking fat
 1/4 onion, finely chopped
-2 teaspoons grated fresh ginger
-(or 1/2 teaspoon ground ginger)
+2 tsp grated fresh ginger
+(or 1/2 tsp ground ginger)
 2 cloves garlic, minced
-1 pint (2 cups) button, cremini, or
+1 pt (2 cup) button, cremini, or
 portabella mushrooms, sliced
 1 cup roasted red peppers, chopped
 
@@ -20,7 +20,7 @@ portabella mushrooms, sliced
 1. PREHEAT the oven to 350°F. Line a baking pan or glass
 baking dish with parchment paper.
 2. CUT the fish into portions and gently pat dry with a paper
-towel. Season evenly with 1/4 teaspoon of the salt and 1/8 tea-
+towel. Season evenly with 1/4 tsp of the salt and 1/8 tea-
 spoon of the pepper and place in the baking pan. Bake for
 12 to 15 minutes, until the flesh in the center of the fish no
 longer appears wet or spongy in texture when you pierce it
@@ -35,7 +35,7 @@ the mushrooms and continue to cook, stirring, for 1 to 2
 minutes. The mushrooms will release moisture, bringing
 the flavors together, and then become more dry in appear-
 ance. Add the roasted red peppers and the remaining 1/4
-teaspoon salt and 1/8 teaspoon pepper and stir for 2 min-
+tsp salt and 1/8 tsp pepper and stir for 2 min-
 utes, allowing the peppers to warm. Remove the pan from
 the heat and hold covered to keep warm.
 4. REMOVE the fish from the oven, spoon the mushroom and

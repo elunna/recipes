@@ -5,7 +5,7 @@ Yield:
 ## Ingredients
 1 blood orange, juiced
 1/2 lime, juiced
-12 ounces sparkling water
+12 oz sparkling water
 
 ## Instructions
 1. ADD the blood orange and lime into a glass.

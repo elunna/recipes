@@ -9,11 +9,11 @@ Juice of 1 lemon
 1 medium head green cabbage,
 finely shredded
 1 cup shredded carrots
-2 tablespoons chopped cashews
-1 teaspoon sesame seeds
-1/2 teaspoon salt
-1/2 teaspoon black pepper
-1 tablespoon ribbon-chopped fresh basil
+2 tbsp chopped cashews
+1 tsp sesame seeds
+1/2 tsp salt
+1/2 tsp black pepper
+1 tbsp ribbon-chopped fresh basil
 
 ## Instructions
 1. WHISK the garlic and lemon juice in a mixing bowl. While
@@ -46,10 +46,10 @@ in your cheese grater until your carrot is down to a sliver!)
 
 ## Notes
 
-save time and use 4 cups of packaged
-shredded cabbage, or use 2 cups of
+save time and use 4 cup of packaged
+shredded cabbage, or use 2 cup of
 packaged shredded cabbage mixed with
-2 cups broccoli slaw. Adding a thinly
+2 cup broccoli slaw. Adding a thinly
 sliced Granny Smith apple would also
 give the slaw a bite of tartness. A mayo-
 based dressing would contribute a bit
@@ -59,5 +59,5 @@ oil with 1/4 cup Basic Mayonnaise (page
 a spicy slaw! Instead of lemon oil, mix
 the slaw with a dressing of 1/4 cup apple
 cider vinegar, 1/4 cup Whole30 Ketchup
-(page 323), and 1 teaspoon hot sauce
+(page 323), and 1 tsp hot sauce
 (see page 403).

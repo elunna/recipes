@@ -3,24 +3,24 @@
 Yield: 
 
 ## Ingredients
-2 tablespoons cooking fat
+2 tbsp cooking fat
 1/2 cup diced onions
 2 cloves garlic, minced
-1 teaspoon minced fresh oregano
-1 teaspoon fresh thyme
-3 cups diced seeded tomatoes (about
+1 tsp minced fresh oregano
+1 tsp fresh thyme
+3 cup diced seeded tomatoes (about
 3 large tomatoes)
-1 pound boneless, skinless chicken
+1 lb boneless, skinless chicken
 thighs, 1-inch diced
-2 cups green beans, cut into 1-inch pieces
+2 cup green beans, cut into 1-inch pieces
 
-1 1/2 cups medium-diced zucchini
+1 1/2 cup medium-diced zucchini
 1 1/2 cup medium-diced yellow squash
 
-1/4 teaspoon red pepper flakes
-1 teaspoons salt
-1/2 teaspoon black pepper
-1 to 2 tablespoons minced fresh basil leaves
+1/4 tsp red pepper flakes
+1 tsp salt
+1/2 tsp black pepper
+1 to 2 tbsp minced fresh basil leaves
 
 ## Instructions
 1. IN a large pot or Dutch oven, heat the cooking fat on
@@ -43,10 +43,10 @@ per flakes, salt, and pepper, sprinkle on the basil, stir for
 
 ### TAKE SOME SHORTCUTS 
 Take 5 minutes off your prep
-time by using a 28-ounce can of diced tomatoes instead of
+time by using a 28-oz can of diced tomatoes instead of
 fresh. (Don't drain them—just toss the whole can in the pot in
 step 2.) And while fresh herbs really make a flavor difference
-here, if you’re short on time, substitute 1/2 teaspoon each of
+here, if you’re short on time, substitute 1/2 tsp each of
 
 
 ## Notes

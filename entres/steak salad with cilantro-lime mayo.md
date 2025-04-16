@@ -7,11 +7,11 @@ Yield: 2 servings
 4 limes, juiced
 1/4 cup finely diced onion
 2 cloves garlic, minced
-2 tablespoons roughly chopped fresh cilantro
-1 teaspoon mustard powder
-1 pound beef (flank steak, sirloin,
+2 tbsp roughly chopped fresh cilantro
+1 tsp mustard powder
+1 lb beef (flank steak, sirloin,
 or strip steak)
-4 cups salad greens
+4 cup salad greens
 1 avocado, split lengthwise, pitted, peeled and cut into large dice
 1/2 cup halved cherry tomatoes
 1 red, yellow, or orange bell pepper, seeded, ribs removed, and cut into

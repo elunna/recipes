@@ -1,10 +1,10 @@
 # Romesco Sauce
 ---
-Yield: 2 cups
+Yield: 2 cup
 Prep time: 25min
 
 ## Ingredients
-- 2 tablespoons cooking oil
+- 2 tbsp cooking oil
 - 1/2 cup almonds, chopped
 - 1 small onion, diced
 - 3 cloves garlic, minced

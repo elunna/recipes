@@ -3,12 +3,12 @@
 Yield: 2 servings
 
 ## Ingredients
-2 steaks (5 ounces each) for grilling (sirloin, strip, rib eye, tenderloin)
-1 teaspoon salt
-1 teaspoon black pepper
+2 steaks (5 oz each) for grilling (sirloin, strip, rib eye, tenderloin)
+1 tsp salt
+1 tsp black pepper
 2 cloves garlic, peeled
 1 shallot, peeled
-2 tablespoons extra-virgin olive oil
+2 tbsp extra-virgin olive oil
 1 avocado, split lengthwise, pitted and peeled
 
 ## Instructions
@@ -17,12 +17,12 @@ before cooking. Preheat a grill to high heat (6500°F) and the
 oven to 350°F. Line a baking sheet with foil.
 2. MIX the salt and pepper in a small bowl and use two-thirds
 of the mixture to season the steaks.
-3. TOSS the garlic and shallot in 1 tablespoon of the olive oil
+3. TOSS the garlic and shallot in 1 tbsp of the olive oil
 and arrange on the prepared baking sheet. Season evenly
 with the remaining salt and pepper. Roast in the oven for
 25 minutes, until the cloves are soft throughout. Transfer
 the garlic and shallots to a food processor, add the remain-
-ing 1 tablespoon olive oil, and puree. Transfer the puree to
+ing 1 tbsp olive oil, and puree. Transfer the puree to
 a dish, cover with foil to keep warm, and set aside.
 4. LAY the steaks on the hot grill and sear for 2 to 3 minutes.
 The steaks should pull off easily when they are seared. Turn
@@ -46,7 +46,7 @@ rich, deep flavor, but you could cut about
 sautéing instead of roasting: First mince
 the shallot and garlic. Heat a large
 skillet over medium-high heat. Add
-1 tablespoon cooking fat and swirl to
+1 tbsp cooking fat and swirl to
 coat the bottom of the pan. Add the
 shatlof and cook unfif fransfucent (2 to
 3 minutes), then add the garlic and

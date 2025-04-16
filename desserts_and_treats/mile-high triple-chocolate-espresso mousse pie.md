@@ -5,29 +5,29 @@ Yield: 10 to 12 Serves
 ## Ingredients
 ### Crust
 1 stick unsalted butter, melted, plus more for pan
-9 ounces chocolate wafer cookies, such as Famous brand
-⅓ cup granulated sugar
-½ teaspoon kosher salt
+9 oz chocolate wafer cookies, such as Famous brand
+1/3 cup granulated sugar
+1/2 tsp kosher salt
 
 ### Mousses
-8 ounces bittersweet chocolate, chopped (1 ¼ cups)
-8 ounces milk chocolate, chopped (1 ¼ cups)
+8 oz bittersweet chocolate, chopped (1 1/4 cup)
+8 oz milk chocolate, chopped (1 1/4 cup)
 6 large egg whites, plus 2 yolks, room temperature
-1 teaspoon pure vanilla paste or extract
-½ teaspoon cream of tartar
-¼ cup granulated sugar
-1 ¼ cups heavy cream
-¼ cup confectioners' sugar
+1 tsp pure vanilla paste or extract
+1/2 tsp cream of tartar
+1/4 cup granulated sugar
+1 1/4 cup heavy cream
+1/4 cup confectioners' sugar
 
 ### Espresso Cream
-1 ¼ cups heavy cream
-1 tablespoon instant espresso powder
-¼ cup confectioners' sugar
+1 1/4 cup heavy cream
+1 tbsp instant espresso powder
+1/4 cup confectioners' sugar
 Unsweetened cocoa powder, for dusting
 
 ## Instructions
 1. Crust: Preheat oven to 350°F. Brush the bottom and sides of a 9-inch-round, 3-inch-deep springform pan with butter. Pulse cookies and granulated sugar in a food processor until finely ground. Add butter and salt, pulsing until texture resembles that of wet sand. Press mixture evenly into bottom and halfway up sides of prepared pan. Bake until crust is set and dry to the touch, 12 to 15 minutes. Transfer pan to a wire rack; let cool completely. (Crust can be loosely wrapped and stored at room temperature up to 1 day.)
-2. Mousses: Melt both chocolates in separate heatproof bowls set over (but not in) a pot of simmering water, stirring occasionally, until only pea-size lumps remain. Remove from heat; stir until chocolate is completely melted. Let cool to warm room temperature. Stir 1 egg yolk and 1/2 teaspoon vanilla into each bowl just to combine.
+2. Mousses: Melt both chocolates in separate heatproof bowls set over (but not in) a pot of simmering water, stirring occasionally, until only pea-size lumps remain. Remove from heat; stir until chocolate is completely melted. Let cool to warm room temperature. Stir 1 egg yolk and 1/2 tsp vanilla into each bowl just to combine.
 3. In a mixer fitted with the whisk attachment, beat egg whites on low speed until foamy. Add cream of tartar; increase speed to medium-high and beat to soft peaks. With motor running, gradually add granulated sugar and beat to stiff, glossy peaks.
 4. Stir 1 cup meringue into each bowl with chocolate mixture. Divide remaining meringue evenly between mixtures, gently folding in until no streaks remain. Whisk cream with confectioners' sugar to soft peaks. Divide evenly between chocolate mixtures, gently folding in until no streaks remain.
 5. Pour bittersweet-chocolate mousse into crust, smoothing top with an offset spatula. Gently pour milk-chocolate mousse over bittersweet mousse, smoothing top.

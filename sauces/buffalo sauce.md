@@ -6,7 +6,7 @@ Yield:
 1/2 cup coconut oil
 1/2 cup ghee or clarified butter
 1 cup hot sauce
-2 tablespoons apple cider vinegar
+2 tbsp apple cider vinegar
 1 clove garlic, minced
 
 ## Instructions
@@ -26,7 +26,7 @@ reblend.)
 ### BUFFALO WINGS 
 For the perfect buffalo wings, fire up
 the grill! Preheat the grill to medium-high heat (400°F). Add
-a pound of wings to the grill and close the lid. Turning the
+a lb of wings to the grill and close the lid. Turning the
 wings every few minutes, cook until lightly charred and the
 skin starts to bubble, 15 to 20 minutes. Toss the wings with
 the buffalo sauce in a large bowl immediately after removing
@@ -39,7 +39,7 @@ crispy wings in about an hour.)
 ## Notes
 
 Want to kick your heat up a notch?
-Add 1/4 teaspoon cayenne to the mix—
+Add 1/4 tsp cayenne to the mix—
 more if you’re feeling feisty. You can
 also mix the buffalo sauce into ground
 beef for a spicy twist on a burger. Top

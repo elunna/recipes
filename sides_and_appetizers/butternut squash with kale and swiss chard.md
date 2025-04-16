@@ -3,7 +3,7 @@
 Yield: 2 servings
 
 ## Ingredients
-2 cups large-diced seeded peeled butternut squash
+2 cup large-diced seeded peeled butternut squash
 1 tbsp extra-virgin olive oil
 1 bunch kale, stemmed, leaves cut into 1-inch ribbons
 1 bunch Swiss chard, stemmed, leaves cut into 1-inch ribbons
@@ -18,7 +18,7 @@ Yield: 2 servings
 1. Preheat oven to 425F.
 2. Line a baking sheet with parchment paper.
 3. In a large bowl, toss or mix the butternut squash with the olive oil until well coated. Place the squash on the baking sheet and roast for 45-50 min, until fork-tender.
-4. ~15 min before the squash is done, bring 2 cups of water to a boil in a large pot.
+4. ~15 min before the squash is done, bring 2 cup of water to a boil in a large pot.
 5. Place a colander or steamer inside the pot. Add the kale and Swiss chard, cover, and steam until the kale is tender but not soft, 3-5 min.
 6. Remove the kale and chard from the pot and set aside. Drain the pot and wipe it out.
 7. Place the same pot over medium heat, add the cooking fat, and swirl to coat the bottom. 

@@ -4,18 +4,18 @@ Yield: 1 10-inch loaf
 
 ## Ingredients
 ### Poolish
-¼ teaspoon active dry yeast (not rapid-rise)
-⅓ cup warm water (about 110 degrees)
-½ cup unbleached bread flour
+1/4 tsp active dry yeast (not rapid-rise)
+1/3 cup warm water (about 110 degrees)
+1/2 cup unbleached bread flour
 
 ### Dough
-1 teaspoon active dry yeast (not rapid-rise)
-1 ⅔ cups warm water (about 110 degrees)
-3 ½ cups unbleached bread flour, plus more for dusting
-½ cup rye flour
-4 teaspoons kosher salt
+1 tsp active dry yeast (not rapid-rise)
+1 2/3 cup warm water (about 110 degrees)
+3 1/2 cup unbleached bread flour, plus more for dusting
+1/2 cup rye flour
+4 tsp kosher salt
 Extra-virgin olive oil
-2 cups ice cubes, for creating steam in oven
+2 cup ice cubes, for creating steam in oven
 
 ## Instructions
 1. Poolish: In a small bowl, stir together yeast, water, and bread flour until it has the consistency of thick pancake batter. Cover with plastic wrap and let stand at room temperature 8 to 12 hours.

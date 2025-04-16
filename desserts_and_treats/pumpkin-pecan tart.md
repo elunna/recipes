@@ -6,23 +6,23 @@ Prep time:
 ## Ingredients
 For the Crust
 All-purpose flour, for work surface
-½ recipe Pate Brisee for Pumpkin-Pecan Tart
+1/2 recipe Pate Brisee for Pumpkin-Pecan Tart
 1 egg white, lightly beaten
 
 For the Filling
-1 (15-ounce) can pumpkin puree
-1 (14-ounce) can sweetened condensed milk
+1 (15-oz) can pumpkin puree
+1 (14-oz) can sweetened condensed milk
 2 large eggs, room temperature
-1 teaspoon ground cinnamon
+1 tsp ground cinnamon
 Pinch of coarse salt
 
 For the Topping
-¾ cup light-brown sugar
-3 tablespoons all-purpose flour
-1 teaspoon ground cinnamon
+3/4 cup light-brown sugar
+3 tbsp all-purpose flour
+1 tsp ground cinnamon
 Pinch of coarse salt
-4 tablespoon unsalted butter, cut into small cubes and chilled
-1 ½ cups pecan halves
+4 tbsp unsalted butter, cut into small cubes and chilled
+1 1/2 cup pecan halves
 Sweetened whipped cream, for serving
 
 ## Instructions

@@ -3,19 +3,19 @@
 Yield: 
 
 ## Ingredients
-1/2 teaspoon salt
-1/2 teaspoon cumin
-1/4 teaspoon paprika
-1/8 teaspoon cayenne
-1 pound chicken thighs (boneless)
-1 quart chicken or vegetable broth
+1/2 tsp salt
+1/2 tsp cumin
+1/4 tsp paprika
+1/8 tsp cayenne
+1 lb chicken thighs (boneless)
+1 qt chicken or vegetable broth
 2 medium sweet potatoes, 1-inch cubed
 1 head broccoli cut into 1-inch pieces
 (save stems)
 2 cloves garlic, minced
 1 jalapefio, finely diced (optional)
-1 14.5-ounce can coconut milk
-1 tablespoon fresh cilantro, minced
+1 14.5-oz can coconut milk
+1 tbsp fresh cilantro, minced
 1 lime, juiced
 1/2 small red onion, finely chopped
 

@@ -6,7 +6,7 @@ Yield:
 1/4 cup raspberries (fresh or frozen)
 1 sprig fresh rosemary leaves
 1/2 lemon, juiced
-12 ounces sparkling water
+12 oz sparkling water
 
 ## Instructions
 1. MUDDLE raspberries and rosemary leaves in a

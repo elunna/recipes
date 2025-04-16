@@ -10,12 +10,12 @@ Image:
 
 ## Ingredients
 2 garlic cloves, thinly sliced
-3 tablespoons fresh lime juice
-2 tablespoons soy sauce
-2 teaspoons honey
-1 tablespoon plus 2 teaspoons vegetable oil
-1 teaspoon sesame seeds, plus more for serving
-3 8-ounce skin-on center-cut salmon fillets
+3 tbsp fresh lime juice
+2 tbsp soy sauce
+2 tsp honey
+1 tbsp plus 2 tsp vegetable oil
+1 tsp sesame seeds, plus more for serving
+3 8-oz skin-on center-cut salmon fillets
 Kosher salt
 1 bunch scallions
 1 Fresno chile, thinly sliced

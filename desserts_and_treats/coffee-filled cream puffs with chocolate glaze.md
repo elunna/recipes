@@ -6,24 +6,24 @@ Prep time:
 ## Ingredients
 For the Coffee Pastry Cream
 1/2 cup sugar
-¼ cup cornstarch
+1/4 cup cornstarch
 Pinch of coarse salt
-1 1/2 cups whole milk
+1 1/2 cup whole milk
 1/2 cup strong, freshly brewed espresso
 4 large egg yolks
-2 tablespoons unsalted butter
-1 teaspoon pure vanilla extract
+2 tbsp unsalted butter
+1 tsp pure vanilla extract
 
 For the Puffs
 1/2 cup (1 stick) unsalted butter, cut into small pieces
-1 teaspoon sugar
-1/2 teaspoon salt
+1 tsp sugar
+1/2 tsp salt
 1 cup water
 1 cup all-purpose flour
 4 large eggs
 
 For the Glaze
-4 ounces semisweet chocolate (61%), chopped
+4 oz semisweet chocolate (61%), chopped
 1/2 cup heavy cream
 
 ## Instructions

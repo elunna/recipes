@@ -4,8 +4,8 @@ Yield:
 
 ## Ingredients
 2 medium sweet potatoes
-2 tablespoons extra-virgin olive oil
-2 tablespoons clarified butter, ghee,
+2 tbsp extra-virgin olive oil
+2 tbsp clarified butter, ghee,
 or coconut butter
 Salt and black pepper
 
@@ -21,7 +21,7 @@ the center of the potato every 5 minutes; they are done
 when they are very soft and tender. (Depending on the size
 of the potatoes, this may take up to 1 hour.)
 4. REMOVE the foil and cut the sweet potatoes open length-
-wise. Keeping the skin on, add 1 tablespoon of butter to
+wise. Keeping the skin on, add 1 tbsp of butter to
 each sweet potato, scraping the flesh gently with a fork so
 the butter melts into the flesh. Season to taste with salt and
 pepper.
@@ -40,11 +40,11 @@ Mayonnaise (page 310).
 ### COMPOUND BUTTER 
 A compound butter (see page 181)
 would be a delicious addition to this simple side dish. Some
-combinations to consider: 2 teaspoons chopped rosemary
-leaves and % cup chopped, toasted pecans; % teaspoon each
+combinations to consider: 2 tsp chopped rosemary
+leaves and % cup chopped, toasted pecans; % tsp each
 cinnamon and nutmeg, % cup chopped toasted walnuts,
 and % cup chopped raisins; or 2 cloves minced garlic with 2
-teaspoons each chopped rosemary, thyme, and sage.
+tsp each chopped rosemary, thyme, and sage.
 
 ## Notes
 

@@ -7,29 +7,29 @@ Yield:
 1/2 cup apple cider
 Grated zest and juice of 2 lemons
 Juice of 1 orange
-1/2 tablespoon grated fresh ginger
-(or 1/2 teaspoon ground ginger)
+1/2 tbsp grated fresh ginger
+(or 1/2 tsp ground ginger)
 
 ### FOR THE FISH
-3 tablespoons cooking fat
-2 halibut fillets (5 ounces each)
-1 teaspoon salt
-1/2 teaspoon black pepper
+3 tbsp cooking fat
+2 halibut fillets (5 oz each)
+1 tsp salt
+1/2 tsp black pepper
 
 ## Instructions
 1. PREHEAT the oven to 400°F.
 2. FOR THE GLAZE: Cook the apple cider in a small
 saucepan over medium-high heat until reduced to about
-1 tablespoon, 4 to 6 minutes. Add the lemon juice, orange
+1 tbsp, 4 to 6 minutes. Add the lemon juice, orange
 juice, and ginger and cook until reduced by half, 3 to 5
 minutes. Remove the pan from the heat and add the lemon
 zest. Set aside.
-3. FOR THE FISH: Heat 2 tablespoons of the cooking fat in
+3. FOR THE FISH: Heat 2 tbsp of the cooking fat in
 a large skillet over high heat, swirling to coat the bottom
 of the pan. While the fat is heating, season the halibut with
 the salt and pepper. When the fat is hot, place the fish top-
 side-down in the pan and sear for 2 to 3 minutes. While the
-fish is searing, melt the remaining 1 tablespoon cooking fat
+fish is searing, melt the remaining 1 tbsp cooking fat
 (if necessary), line a baking sheet with parchment paper,
 and brush half of the fat on the paper.
 4. REMOVE the halibut from the pan and transfer seared-

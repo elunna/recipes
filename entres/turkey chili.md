@@ -4,8 +4,8 @@ Yield:
 Prep time:
 
 ## Ingredients
-2 tablespoons olive oil
-2 pounds lean ground turkey
+2 tbsp olive oil
+2 lb lean ground turkey
 1 sweet onion, finely chopped
 3 cloves of garlic, minced
 1 (28oz) can black beans, drained
@@ -15,15 +15,15 @@ Prep time:
 1 yellow bell pepper, chopped
 1 red bell pepper, chopped
 1 yellow pepper, chopped
-2 cups chicken or vegetable broth
-2 tablespoons chili powder
-1 tablespoon brown sugar
-2 teaspoon hot sauce
-1 teaspoon dried oregano
-1 teaspoon dried basil
-1 teaspoon garlic powder
-1 1/2 teaspoon sea salt
-1/2 teaspoon cayenne pepper (optional)
+2 cup chicken or vegetable broth
+2 tbsp chili powder
+1 tbsp brown sugar
+2 tsp hot sauce
+1 tsp dried oregano
+1 tsp dried basil
+1 tsp garlic powder
+1 1/2 tsp sea salt
+1/2 tsp cayenne pepper (optional)
 Toppings: Sour cream, shredded cheddar cheese, green onions, limes
 
 

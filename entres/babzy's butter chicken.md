@@ -3,20 +3,20 @@
 Yield: 4 servings
 
 ## Ingredients
-2 tablespoons butter 
+2 tbsp butter 
 1 onion, chopped 
 2 garlic cloves, crushed 
 3 boneless chicken breasts 
-1⁄2 teaspoon ground ginger 
-1⁄2 teaspoon cumin 
-1⁄4 teaspoon cayenne pepper 
-1 teaspoon turmeric 
-1⁄2 teaspoon cinnamon 
-1 teaspoon salt 
+1⁄2 tsp ground ginger 
+1⁄2 tsp cumin 
+1⁄4 tsp cayenne pepper 
+1 tsp turmeric 
+1⁄2 tsp cinnamon 
+1 tsp salt 
 1 cup cream (I use fat free cream) 
-14 ounces tomato sauce 
+14 oz tomato sauce 
 1⁄4 cup sour cream or 1/4 cup plain yogurt 
-1 teaspoon garam masala
+1 tsp garam masala
 
 ## Instructions
 1. In a large saucepan, saute onion and garlic in butter, until onions are soft. 

@@ -4,21 +4,21 @@ Yield:  servings
 Prep time: 30 min
 
 ## Ingredients
-2 tablespoons Olive Oil
-3 pounds Boneless Chuck Roast
+2 tbsp Olive Oil
+3 lb Boneless Chuck Roast
 Salt and Pepper
 2 Carrots Sliced
 2 stalks Celery Thinly sliced
 2 Yellow Onions Thinly sliced
 2 Red Bell Peppers Thinly sliced
 4 cloves Garlic Minced
-¼ cup Sweet Hungarian Paprika
-2 tablespoons Hot Hungarian Paprika
-6 cups Reduced Sodium Chicken Stock
+1/4 cup Sweet Hungarian Paprika
+2 tbsp Hot Hungarian Paprika
+6 cup Reduced Sodium Chicken Stock
 2 Bay Leaves
-1 pound Potatoes Yellow, diced
-2 tablespoons Red Wine Vinegar
-¼ cup Fresh Parsley Optional
+1 lb Potatoes Yellow, diced
+2 tbsp Red Wine Vinegar
+1/4 cup Fresh Parsley Optional
 
 ## Instructions
 1. Add the olive oil to a heavy soup pot set over medium-high heat. Season the beef with salt and pepper, then cook until well-browned on each side – about 10 minutes. Transfer to a cutting board and cut into 1/2-inch to 1-inch cubes.

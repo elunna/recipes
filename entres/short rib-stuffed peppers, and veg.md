@@ -10,11 +10,11 @@ Yield:
 8 bell peppers (red, yellow, or orange)
 1/4 cup extra-virgin olive oil
 Braised Beef Short Ribs (page 371)
-2 cups sun-dried tomatoes in oil
-2 cups Kalamata or black olives, pitted
-4 ounces anchovies in oil, drained
-2 tablespoons capers, drained
-1 teaspoon coarse salt
+2 cup sun-dried tomatoes in oil
+2 cup Kalamata or black olives, pitted
+4 oz anchovies in oil, drained
+2 tbsp capers, drained
+1 tsp coarse salt
 
 ## Instructions
 1. PREHEAT the oven to 450°F. Line a baking

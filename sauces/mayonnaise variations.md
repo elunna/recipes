@@ -21,7 +21,7 @@ fully incorporated.
 
 
 ## wasabi mayonnaise
-1 1/2 tablespoons wasabi powder
+1 1/2 tbsp wasabi powder
 1 cup Basic Mayonnaise (page 179)
 
 Wasabi mayo is a great topping for salmon,
@@ -30,7 +30,7 @@ potato salad, a tasty dipping sauce for baked
 “fries,” and a nice drizzle for our Grilled
 Asparagus with Lemon Zest (page 284).
 
-MIX the wasabi powder and 1% tablespoons
+MIX the wasabi powder and 1% tbsp
 of water together in a small bowl until it forms
 a firm paste. (If it’s too dry, add a little more
 water.) Mix the wasabi paste and the mayo ina
@@ -104,10 +104,10 @@ inspired Perfect Ground Meat (page 152).
 ## herb mayonnaise
 
 1 cup Basic Mayonnaise (page 179)
-2 tablespoons minced mixed herbs
+2 tbsp minced mixed herbs
 1 clove garlic, minced
 Juice of 1/2 lemon
-1/8 teaspoon cayenne pepper
+1/8 tsp cayenne pepper
 
 
 
@@ -150,11 +150,11 @@ sauce for raw or roasted vegetables.
 
 ## tartar sauce
 1 cup Basic Mayonnaise (page 179)
-2 tablespoons minced fresh dill leaves
-1 tablespoon minced dill pickles
-2 teaspoons minced chives
+2 tbsp minced fresh dill leaves
+1 tbsp minced dill pickles
+2 tsp minced chives
 Juice of 1/2 lemon
-1/4 teaspoon black pepper
+1/4 tsp black pepper
 
 COMBINE all ingredients in a small bowl and
 mix until blended.

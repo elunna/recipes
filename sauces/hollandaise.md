@@ -4,11 +4,11 @@ Yield:
 
 ## Ingredients
 
-1 1/2 cups clarified unsalted butter or ghee
+1 1/2 cup clarified unsalted butter or ghee
 4 large egg yolks
-2 tablespoons lemon juice
-1 teaspoon salt
-1/8 teaspoon cayenne pepper (optional)
+2 tbsp lemon juice
+1 tsp salt
+1/8 tsp cayenne pepper (optional)
 
 
 ## Instructions
@@ -19,7 +19,7 @@ pepper (if you like) in a food processor or blender and
 pulse 10 to 15 times to combine. Slowly drizzle in the warm
 butter or ghee while mixing on low speed, until the sauce
 emulsifies and thickens. If the sauce becomes too thick,
-blend in a tablespoon of warm water.
+blend in a tbsp of warm water.
 3. SERVE the sauce immediately, or hold covered in a small
 saucepan on the lowest heat setting for up to an hour.
 Make your hollandaise fresh every time you serve it, as it

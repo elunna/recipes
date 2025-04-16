@@ -9,20 +9,20 @@ URL:
 Image: 
 
 ## Ingredients
-2 tablespoons butter (sm�r)
+2 tbsp butter (sm�r)
 1 onion, chopped (l�k)
 2 garlic cloves, crushed (vitl�ksklyftor)
 3-4 boneless chicken breasts (kycklingbr�st)
-1/2 teaspoon ground ginger (mald ingef�ra)
-1/2 teaspoon cumin (kummin)
-1/4 teaspoon cayenne pepper (cayenpeppar)
-1 teaspoon tumeric (gurkmeja)
-1/2 teaspoon cinnamon (kanel)
-1 teaspoon salt
+1/2 tsp ground ginger (mald ingef�ra)
+1/2 tsp cumin (kummin)
+1/4 tsp cayenne pepper (cayenpeppar)
+1 tsp tumeric (gurkmeja)
+1/2 tsp cinnamon (kanel)
+1 tsp salt
 2 1/3 dl cream (matlagnings gr�dde) 13%
 390g tomato sauce (passerade tomater)
 1/2 dl turkish yogurt
-1 teaspoon garam masala
+1 tsp garam masala
 
 Also: 
 naan bread

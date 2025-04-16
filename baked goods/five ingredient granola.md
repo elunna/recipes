@@ -9,7 +9,7 @@ URL:
 Image: 
 
 ## Ingredients
-2 cups rolled oats
+2 cup rolled oats
 3⁄4 cup natural peanut butter, room temperature
 1⁄4 cup maple syrup
 

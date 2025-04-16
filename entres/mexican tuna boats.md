@@ -4,14 +4,14 @@ Yield: 2 servings
 
 ## Ingredients
 1 avocado, pitted and peeled
-2 cans (5 ounces each) tuna, drained
+2 cans (5 oz each) tuna, drained
 3 green onions, thinly sliced
 Juice of 1 1/2 limes
 1/2 jalapeno, minced
-1 tablespoon minced fresh cilantro
-1/2 teaspoon chili powder
-1/2 teaspoon salt
-1/8 teaspoon black pepper
+1 tbsp minced fresh cilantro
+1/2 tsp chili powder
+1/2 tsp salt
+1/8 tsp black pepper
 1 head endive, separated into leaves
 
 
@@ -42,7 +42,7 @@ paper towel inside a resealable bag to
 keep them crisp. Or, stuff the tuna salad
 inside a romaine lettuce leaf, hollowed-
 out bell pepper, tomato, or the cucumber
-cups from page 234. This dish would
+cup from page 234. This dish would
 also work with canned chicken or salmon
 and would taste amazing with a drizzle
 of cool Ranch Dressing (page 316) or

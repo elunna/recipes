@@ -6,19 +6,19 @@ Yield:
 ### FIG VINAIGRETTE
 1/4 cup white wine vinegar or champagne vinegar
 1/4 cup balsamic vinegar
-1/2 teaspoon mustard powder
+1/2 tsp mustard powder
 1 clove garlic, minced
 3/4 cup extra-virgin olive oil
 1/4 cup dried figs, finely chopped (5 to 6 figs)
-2 teaspoons minced fresh thyme leaves
-1/2 teaspoon salt
-1/2 teaspoon black pepper
+2 tsp minced fresh thyme leaves
+1/2 tsp salt
+1/2 tsp black pepper
 
 ### GREEN BEANS
-2 cups ice
-2 tablespoons salt
-1 pound green beans, trimmed
-2 tablespoons cooking fat
+2 cup ice
+2 tbsp salt
+1 lb green beans, trimmed
+2 tbsp cooking fat
 1/4 cup slivered almonds
 
 
@@ -32,7 +32,7 @@ season with the salt and pepper.
 2. TO MAKE THE GREEN BEANS:
 Create an ice bath for “shocking” the beans by filling a large
 bowl halfway with cokd-water, then adding the ice.
-3. COMBINE 3 cups of water and the salt in a large
+3. COMBINE 3 cup of water and the salt in a large
 saucepan and bring to a boil over high heat.
 
 4. Add the green beans and blanch for 20 seconds.

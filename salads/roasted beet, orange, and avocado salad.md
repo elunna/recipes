@@ -4,18 +4,18 @@ Yield:
 
 ## Ingredients
 2 medium beets
-2 tablespoons extra-virgin olive oil
-1 tablespoon balsamic vinegar
+2 tbsp extra-virgin olive oil
+1 tbsp balsamic vinegar
 1 orange, halved, one half zested and
-1/2 teaspoon salt
-1/4 teaspoon black pepper
+1/2 tsp salt
+1/4 tsp black pepper
 1 avocado, split lengthwise, pitted,
 peeled, and diced
 
 ## Instructions
 1. PREHEAT the oven to 425°F.
 2. RINSE the beets thoroughly and carefully stab all sides
-with a fork. Place in a medium bowl and add 1 tablespoon
+with a fork. Place in a medium bowl and add 1 tbsp
 of the olive oil, tossing or mixing to thoroughly coat. Wrap
 the oiled beets in aluminum foil, pinching the top closed to
 create a seal. Place the beets in the center of a baking sheet
@@ -32,7 +32,7 @@ gloves and an apron, as beet juice will stain your skin and
 clothes. Dice the beets into l-inch pieces and place ina
 serving bowl.
 
-4. IN a small bowl, combine the remaining 1 tablespoon olive
+4. IN a small bowl, combine the remaining 1 tbsp olive
 oil with the vinegar, orange juice, salt, and pepper and
 whisk until combined.
 5. ADD the orange segments and avocado to the beets.
