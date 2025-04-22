@@ -34,8 +34,7 @@ Yield: 10 to 12 Serves
 6. Espresso Cream: Whisk cream, espresso powder, and confectioners' sugar to stiff peaks. Spread evenly over milk-chocolate mousse in pan, smoothing top. Refrigerate until set, at least 8 hours. (Pie can be loosely covered with plastic wrap and refrigerated up to 3 days.)
 7. To serve, lightly dust top with cocoa, then run a thin knife around edges of pan to loosen; unlock pan and lift sides to remove. Transfer pie to a serving plate or cake stand and cut into wedges.
 
-Cook's Notes
-If you are concerned about using raw eggs, look for the pasteurized variety at the store.
+Cook's Notes: If you are concerned about using raw eggs, look for the pasteurized variety at the store.
 
 ## Notes
 

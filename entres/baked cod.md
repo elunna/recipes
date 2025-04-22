@@ -3,9 +3,9 @@
 Yield: 4 servings
 
 ## Ingredients
-- Nonstick spray - for the pan
-- 2 tbsp unsalted butter - melted
-- 1 tbsp lemon juice - freshly squeezed
+- 1-2 tbsp cooking fat
+- 2 tbsp unsalted butter, melted
+- 1 tbsp lemon juice, freshly squeezed
 - 1 tbsp fresh garlic - minced
 - 1 tsp Diamond Crystal kosher salt - or 1/2 tsp of any other salt, including Morton kosher salt
 - 1/2 tsp red pepper flakes
@@ -14,7 +14,7 @@ Yield: 4 servings
 - 1/2 tsp paprika
 
 ## Instructions
-1. Preheat the oven to 425°F. Lightly spray a baking dish with nonstick spray.
+1. Preheat the oven to 425°F. Melt the cooking fat.
 2. In a small bowl, whisk the butter, lemon juice, garlic, salt, and red pepper flakes. Stir in the capers.
 3. Place the cod fillets in the baking dish. Pour the butter mixture on top. Use a brush to evenly distribute the thick sauce on top of the fillets. Sprinkle them with paprika.
 4. Bake uncovered until the fish is fully cooked, opaque, and flakes easily with a fork. Depending on the thickness of your cod fillets and your oven, this should take about 15 minutes (25 minutes if using frozen fish). Serve immediately.

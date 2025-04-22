@@ -15,19 +15,12 @@ Prep time: 30 min
 - pepper
 
 ## Instructions
-
 1. Thaw the fish and sugar peas.
-
 2. Cook the rice
-
 3. Pour tomatoes, cream and crumbled broth cubes into a saucepan and cook up. Divide the tomatoes into smaller pieces with a ladle.
-
 4. Cut the fish about 3 cm large pieces.
-
 5. Put the fish and sugar peas in the saucepan and simmer for about 5 minutes.
-
 6. Chop the dill and turn down. Taste with salt and pepper.
-
 7. Serve the pot with the rice.
 
 ## Notes

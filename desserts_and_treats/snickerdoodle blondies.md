@@ -18,17 +18,11 @@ Prep time: 10 min
 
 ## Instructions
 1. Preheat oven to 350°
-
 2. Grease a 9-x-9" pan with cooking spray.
-
 3. In a large bowl using a hand mixer, beat butter and both sugars until light and fluffy. Add eggs and vanilla and beat until combined. 
-
 4. In another bowl, whisk together flour, cinnamon, baking powder, and salt. Add dry ingredients to wet ingredients and beat until just combined. 
-
 5. Press batter into prepared pan and sprinkle top with cinnamon sugar. 
-
 6. Bake until golden and still slightly soft in the middle, 25 to 30 minutes. 
-
 7. Let cool before slicing into squares.
 
 ## Notes

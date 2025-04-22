@@ -13,13 +13,10 @@ Prep time: 15 mins
 
 ## Instructions
 1. Zest grapefruit into a large bowl until you have 1 tbsp zest.
-2. Cut the grapefruit into segments. Cut the segments into thirds;
+2. Cut the grapefruit into segments. Cut the segments into thirds.
 3. Squeeze 2 tbsp juice from the leftover membranes into the large bowl with the zest.
-4. Add fennel, apple, and the reserved grapefruit to the bowl and toss until combined. Sprinkle with
-sunflower seeds. Garnish with fennel fronds, if desired.
+4. Add fennel, apple, and the reserved grapefruit to the bowl and toss until combined.
+5. Sprinkle with sunflower seeds. Garnish with fennel fronds, if desired.
 
 ## Notes
-
-This quick and colorful side salad is a lovely accompaniment to fish, chicken, or pork. When slicing the
-fennel, don't discard the fronds! The wispy green tips resemble fresh dill and provide a colorful, anise-
-flavored garnish.
+This quick and colorful side salad is a lovely accompaniment to fish, chicken, or pork. When slicing the fennel, don't discard the fronds! The wispy green tips resemble fresh dill and provide a colorful, anise-flavored garnish.

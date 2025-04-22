@@ -26,18 +26,16 @@ Prep time:
 - 1/2 tsp cayenne pepper (optional)
 - Toppings: Sour cream, shredded cheddar cheese, green onions, limes
 
-
 ## Instructions
-1. In a large Dutch oven or heavy bottomed pot, heat the olive oil, over medium high heat, until shimmering. Add the ground turkey and cook, breaking it apart with a wooden spoon, until browned, about 8 minutes. Remove with a slottled spoon and reserve.
-
-2. Add more olive oil if needed and add the onions and garlic. Saute until softened and fragrant, about 2 minutes. Add the peppers and cook until softened, 2 more minutes.
-
-3. Return the browned turkey to the pot and add the remaining ingredients. Stir until combined and bring to a boil.
-
-4. Once the chili is boiling, lower the heat to a simmer and cook, uncovered, for 45 to 60 minutes or until it thickens. Taste and adjust seasonings, as needed.
-
-5. Serve immediately, garnished with your desired toppings!
-
+1. In a large Dutch oven or heavy bottomed pot, heat the olive oil, over medium high heat, until shimmering.
+2. Add the ground turkey and cook, breaking it apart with a wooden spoon, until browned, about 8 minutes.
+3. Remove with a slotted spoon and reserve.
+4. Add more olive oil if needed and add the onions and garlic. Saute until softened and fragrant, about 2 minutes.
+5. Add the peppers and cook until softened, 2 more minutes.
+6. Return the browned turkey to the pot and add the remaining ingredients. Stir until combined and bring to a boil.
+7. Once the chili is boiling, lower the heat to a simmer and cook, uncovered, for 45 to 60 minutes or until it thickens.
+8. Taste and adjust seasonings, as needed.
+9. Serve immediately, garnished with your desired toppings!
 
 ## Notes
 

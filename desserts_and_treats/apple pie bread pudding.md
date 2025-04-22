@@ -23,33 +23,28 @@ Don't rush the process: It's important to let the bread mixture sit for at least
 Do serve warm: This bread pudding is best served warm from the oven, preferably with a scoop of vanilla ice cream on the side. If you do need to bake it ahead of time, cover and refrigerate the bread pudding, then let it come to room temperature before reheating.
 
 ## Ingredients
-6 tbsp unsalted butter, plus more for dish
-1 cup heavy cream
-1 cup whole milk
-3 large eggs
-8 oz brioche, cut into 1-inch cubes (6 cup)
-2/3 cup light brown sugar
-1/3 cup granulated sugar
-2 tsp pure vanilla
-1/2 tsp ground cinnamon
-1/4 tsp ground allspice
-1/4 tsp freshly grated nutmeg
-1/2 tsp kosher salt
-2 Granny Smith apples, peeled, quartered, cored, and sliced crosswise in 1/4-inch thick pieces (2 cup)
-Turbinado sugar, for sprinkling (optional)
-Vanilla ice cream, for serving
+- 6 tbsp unsalted butter, plus more for dish
+- 1 cup heavy cream
+- 1 cup whole milk
+- 3 large eggs
+- 8 oz brioche, cut into 1-inch cubes (6 cup)
+- 2/3 cup light brown sugar
+- 1/3 cup granulated sugar
+- 2 tsp pure vanilla
+- 1/2 tsp ground cinnamon
+- 1/4 tsp ground allspice
+- 1/4 tsp freshly grated nutmeg
+- 1/2 tsp kosher salt
+- 2 Granny Smith apples, peeled, quartered, cored, and sliced crosswise in 1/4-inch thick pieces (2 cup)
+- Turbinado sugar, for sprinkling (optional)
+- Vanilla ice cream, for serving
 
 ## Instructions
 1. In a large bowl, whisk together cream, milk, and eggs. Add brioche and gently toss to coat. Set aside at room temperature for 30 minutes to soak.
-
 2. In a large bowl, whisk together cream, milk, and eggs. Add brioche and gently toss to coat. Set aside at room temperature for 30 minutes to soak.
-
 3. Meanwhile, melt butter in a medium saucepan over medium heat. Remove from heat and add granulated sugar, brown sugar, vanilla, spices, and salt; stir until smooth and well combined. Add apples and toss to coat.
-
 4. Gently fold apple mixture into the bread mixture until well combined. Spoon bread and apple mixture into prepared pie plate, then pour remaining liquid over top just to fill to the edge of the dish (you may not use all of it). Sprinkle with turbinado sugar, if desired.
-
 5. Cover with a piece of parchment, followed by a piece of aluminum foil and crimp edges to seal; set on a parchment-lined baking sheet to catch drips. Bake for 45 minutes. Uncover and continue to bake until bread pudding is golden brown and set in the center, 30 to 35 minutes more.
-
 6. Let sit on a wire rack 10 to 20 minutes before serving with ice cream.
 
 ## Notes

@@ -23,7 +23,6 @@ For cream:
 5. Let sit for 5-10 minutes to thicken.
 6. Whip the cream with some vanilla.
 
-
 ## Notes
 
 Visp-grädde: Whip with vanilj soker to taste 

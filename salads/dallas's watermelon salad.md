@@ -1,4 +1,4 @@
-# Recipe Title
+# Dallas's Watermelon Salad
 ---
 Yield: 
 
@@ -10,16 +10,8 @@ Yield:
 - 1/2 serrano chile pepper, seeded, finely sliced (optional)
 
 ## Instructions
-1. PLACE all of the ingredients in a large non-
-reactive bowl and use a wooden spoon to com-
-bine. 
-2. Cover and chill in the refrigerator for at
-least 20 minutes before serving. 
+1. Place all of the ingredients in a large non-reactive bowl and use a wooden spoon to combine. 
+2. Cover and chill in the refrigerator for at least 20 minutes before serving. 
 
 ## Notes
-
-
-
-The salad can
-also be made up to one day ahead of time.
-
+The salad can also be made up to one day ahead of time.

@@ -13,14 +13,14 @@ Prep time:
 - salt and black pepper to taste
 
 ## Instructions
-1. Cut the eggs in half. Remove the yolks and place them in a bowl or a shallow dish. Finely chop the egg whites.
-2. Using a fork, mash the egg yolks with mayonnaise, mustard, and a pinch of salt & pepper until smooth and creamy.
-3. Add the chopped egg whites, green onion, and celery. Stir well.
-4. Serve on bread or over lettuce.
+1. Cut the eggs in half. Remove the yolks and place them in a bowl or a shallow dish.
+2. Finely chop the egg whites.
+3. Using a fork, mash the egg yolks with mayonnaise, mustard, and a pinch of salt & pepper until smooth and creamy.
+4. Add the chopped egg whites, green onion, and celery. Stir well.
+5. Serve on bread or over lettuce.
 
 ## Notes
-
-Flavor Variations
+### Flavor Variations
 - Replace green onion with chives or finely chopped red onion.
 - Add finely chopped or grated dill pickles or some sweet pickle relish.
 - Substitute half of the mayonnaise with Greek yogurt.

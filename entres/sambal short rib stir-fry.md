@@ -3,7 +3,7 @@
 Yield: 4 servings
 
 ## Ingredients
-3 tbsp toasted sesame oil
+- 3 tbsp toasted sesame oil
 - 1 lb boneless beef short ribs, thinly sliced against the grain
 - Kosher salt, freshly ground pepper
 - 2 small onions, thinly sliced
@@ -29,8 +29,6 @@ Yield: 4 servings
 7. Add radishes, snow peas, and broth and bring to a boil. Cook until liquid is reduced by half and meat and vegetables are glossy and saucy, about 5 minutes.
 8. Season with salt and pepper. 
 9. Serve stir-fry over rice topped with basil.
-10. 
 
 ## Notes
-
 https://www.bonappetit.com/recipe/sambal-short-rib-stir-fry

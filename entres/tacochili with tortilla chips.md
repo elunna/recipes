@@ -1,4 +1,4 @@
-# Tacochili with tortilla chips
+# Taco-chili with tortilla chips
 ---
 Yield: 4 portions
 Prep time: 45 min
@@ -21,17 +21,11 @@ For serving
 - 125g tortilla chips
 
 ## Instructions
-
 1. Cook the beef.
-
 2. Cook the rice according to the instructions on the package.
-
 3. Peel and chop the onion.
-
 4. Melt with onion at the end of frying the beef.
-
 5. Add water, crumbled broth cubes, pasta sauce and corn. Let simmer ~5 min. Taste with pepper.
-
 6. Cut the salad into pieces.
 
 For serving: Serve the pot with crème fraiche, salad, rice and tortilla chips.

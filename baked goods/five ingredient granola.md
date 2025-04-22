@@ -1,4 +1,4 @@
-# Recipe Title
+# 5-Ingredient Granola 
 ---
 Yield:
 
@@ -7,8 +7,7 @@ Yield:
 - 3⁄4 cup natural peanut butter, room temperature
 - 1⁄4 cup maple syrup
 
-3 different versions:
-
+### 3 different versions:
 Very Berry 
 - 1⁄2 cup mixed dried berries
 - 3⁄4 cup almonds
@@ -22,12 +21,11 @@ Apple Walnut
 - 3⁄4 cup walnuts, roughly chopped
 
 ## Instructions
-1. Preheat oven to 325 
+1. Preheat oven to 325F 
 2. Combine ingredients in a large mixing bowl.
 3. Pour mixture on a parchment-lined baking sheet.
 4. Bake for 10-15 minutes. 
 5. Store in an airtight container for up to a week or in the freezer for six months.
-
 
 ## Notes
 

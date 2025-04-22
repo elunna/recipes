@@ -14,22 +14,10 @@ Yield: 2 cup
 - 1/2 tsp black pepper
 
 ## Instructions
-1. COMBINE all ingredients in a food processor
-and pulse 5 to 10 times to combine, then blend
-on high speed until smooth.
-2. STORE in the refrigerator for up to 5 days.
+1. Combine all ingredients in a food processor and pulse 5 to 10 times to combine, then blend on high speed until smooth.
+2. Store in the refrigerator for up to 5 days.
 
-YOU COULD easily change the flavor of
-this sauce by substituting the same amount of
-sundried tomatoes or roasted eggplant for the
-roasted red peppers, or try black olives to make a
-tapenade-like spread for vegetables or meat.
+You could easily change the flavor of this sauce by substituting the same amount of sundried tomatoes or roasted eggplant for the roasted red peppers, or try black olives to make a tapenade-like spread for vegetables or meat.
 
 ## Notes
-
-We tell you to pair this sauce with the Broccoli,
-Mushrooms, and Yellow Squash on page 264, but
-when we “road tested” the recipe, we ended up
-putting the sauce on everything—fried eggs in the
-morning, our burger at lunch, and roasted cauliflower
-at dinner. Double this recipe—you'll thank us.
+We tell you to pair this sauce with the Broccoli, Mushrooms, and Yellow Squash, but when we “road tested” the recipe, we ended up putting the sauce on everything—fried eggs in the morning, our burger at lunch, and roasted cauliflower at dinner. Double this recipe—you'll thank us.

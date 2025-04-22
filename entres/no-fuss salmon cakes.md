@@ -1,36 +1,35 @@
 # no-fuss salmon cakes
 ---
-Yield: 2 servings
-Prep time: 45 min
+Yield: 
 
 ## Ingredients
-- 3 6-oz cans wild-caught salmon (boneless or bones removed)
+- 3 6-oz cans wild-caught salmon (boneless, or bones removed)
 - 1 cup canned sweet potatoes
-- 1 egg 
+- 1 egg
 - 1/2 cup almond flour
-- 3 scallions, thinly sliced, plus extra for garnish
+- 2 scallions, thinly sliced, plus extra for garnish
 - 2 tbsp fresh parsley, minced (or 2 tsp dried)
 - 2 tbsp fresh minced dill (or 2 tsp dried)
 - 1 tsp salt
 - 1/2 tsp paprika
 - 1/4 tsp ground black pepper
-- 2 tbsp ghee/coconut oil
-- lemon wedges for serving
-
+- 2 tbsp clarified butter, ghee, or coconut oil, melted
+- Lemon wedges for serving (optional)
 
 ## Instructions
-- Preheat oven to 425F and cover a large baking sheet with parchment paper.
-- Drain the liquid from the salmon and crumble the fish into a large mixing bowl, removing the bones and flaking the fish with a fork. Add the sweet potato, egg, almond flour, scallions, parsley, dill, salt, paprika, and pepper and mix well with a wooden spoon.
-- Brush the parchment paper with the melted fat, then use a 1/3 cup measuring cup to scoop the cakes and drop them onto the parchment. Flatten the patties with your hand until they are uniform in thickness.
-- Bake for 20 min, then flip each patty with a spatula and return to the oven. Bake until golden brown, ~10 more minutes.
-- Serve with sliced scallions and lemon wedges.
+1. Preheat the oven to 425°F and cover a large baking sheet with parchment paper.
+2. Drain the liquid from the salmon and crumble the fish into a large mixing bowl, removing the bones and flaking the fish with a fork. 
+3. Add the sweet potato, egg, almond flour, scallions, parsley, dill, salt, paprika, and pepper and mix well with a wooden spoon.
+4. Brush the parchment paper with the melted fat, then use a 1/3-cup measuring cup to scoop the cakes and drop them onto the parchment. Flatten the patties with your hand until they are uniform in thickness.
+5. Bake for 20 minutes, then flip each patty with a spatula and return to the oven. Bake until golden brown, about 10 more minutes.
+6. Serve with sliced scallions and lemon wedges for squeezing over the top, if desired.
 
 ## Notes
+Created by Melissa Joulwan for It Starts With Food
 
-Whole30
+You can find de-boned canned salmon at your local health food store—that will save you about 10 minutes of prep time. Look for wild-caught to ensure you’re getting the highest level of nutrition, especially anti-inhammatory omega-3 fatty acids like EPA and DHA. These fatty acids come from the food wild salmon eat, like algae and krill. Farmed salmon don’t eat these foods, so they don’t contain the same healthy fats.
 
-Pair with Tartar sauce!
+While these salmon cakes are a complete meal on their own (especially topped with Tartar Sauce), they pair well with sautéed green beans and a fresh garden salad, our Grilled Asparagus with Lemon Zest,
+or Roasted Sweet Potatoes.
 
-Also try pairing with sauteed green beans and a fresh garden salad, grilled asparagus, or roasted sweet potatoes.
-
-- They also reheat beautifully, so make a double-batch and enjoy these for breakfast the next day - top two cakes with some wilted spinach and a fried egg.
+They also reheat beautifully, so make a double-batch and enjoy these for breakfast the next day—top two cakes with some wilted spinach and a fried egg.

@@ -1,12 +1,6 @@
 # Coffee Smoothie
 ---
 Yield: 1 serving (16-oz)
-Category:
-Prep time:
-Rating:
-Source:
-URL:
-Image: 
 
 ## Ingredients
 - 1 tbsp chia seeds
@@ -20,13 +14,10 @@ Image:
 - 2 ice cubes
 
 ## Instructions
-1. 
-2. 
-3. 
+1. Blend all ingredients together.
 
 ## Notes
-
-429	Calories
-16g	Fat
-66g	Carbs
-12g	Protein
+- 429	Calories
+- 16g	Fat
+- 66g	Carbs
+- 12g	Protein

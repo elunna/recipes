@@ -23,19 +23,16 @@ Description: Healthy Asian lettuce wraps with ground chicken or ground turkey, g
 ## Instructions
 1. Lightly coat a 5-qt or larger slow cooker with nonstick spray. 
 2. In a small bowl, stir together the hoisin, soy sauce, rice vinegar, and sesame oil. Set aside.
-
 3. Heat the olive oil in a large skillet over medium high. 
 4. Add the chicken and brown the meat, breaking it into small pieces. 
 5. Continue cooking until no longer pink, about 4 to 6 minutes. 
 6. Stir in the white and light green parts of the green onions, ginger, and garlic. 
 7. Cook 30 additional seconds.
-
 8. Transfer the meat mixture to the slow cooker. 
 9. Stir in the chopped mushrooms, carrots, red pepper flakes, and sauce. 
 10. Cover and cook on LOW for 2 to 3 hours until the mixture is thickened and the chicken is ultra tender. 
 11. (Do not be tempted to cook on HIGH, as the chicken will become tough.) 
 12. Stir in the water chestnuts and green parts of the green onions.
-
 13. To serve, separate the butter lettuce leaves and fill with the chicken mixture. 
 
 ## Notes

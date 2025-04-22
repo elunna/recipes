@@ -4,10 +4,9 @@ Yield:
 Prep time:
 
 ## Ingredients
-
 - 1 1⁄2 lbs boneless skinless chicken, cut in 1 inch cubes
 
-Marinade
+### Marinade
 - 1 cup plain yogurt
 - 2 tbsp lemon juice
 - 2 tsp ground cumin
@@ -18,7 +17,7 @@ Marinade
 - 1 piece minced ginger (1-inch long)
 - 6 bamboo skewers (6-inch)
 
-Sauce
+### Sauce
 - 1 tbsp unsalted butter
 - 2 garlic cloves, minced
 - 1 jalapeno chile, minced
@@ -30,7 +29,6 @@ Sauce
 - 1 (8 oz) can tomato sauce
 - 1 cup whipping cream (or coconut milk)
 - 1⁄4 cup chopped fresh cilantro
-
 
 ## Instructions
 1. Soak bamboo skewers in water.

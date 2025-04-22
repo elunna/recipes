@@ -22,8 +22,8 @@ Prep time: 15 min
 
 ## Instructions
 1. In the large bowl, mix together the mayonnaise, sambal oelek, sesame oil, soy sauce, honey, ginger, kosher salt, sesame seeds, and red pepper flakes.
-2. Add the tuna, carrots, green onions, cilantro, and dried cranberries, then toss to mix well. Use as a stuffing for lettuce wraps, tortilla wraps, tomatoes, on top of thick sliced cucumbers, or on top of green salads.
+2. Add the tuna, carrots, green onions, cilantro, and dried cranberries, then toss to mix well.
+3. Use as a stuffing for lettuce wraps, tortilla wraps, tomatoes, on top of thick sliced cucumbers, or on top of green salads.
 
 ## Notes
-
 Stuff a big heriloom tomato with this!

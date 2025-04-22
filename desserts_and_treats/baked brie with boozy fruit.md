@@ -22,23 +22,28 @@ Boozy Fruit:
 - Large pinch of kosher salt
 
 ## Instructions
-For boozy fruit: Combine all ingredients in a small saucepan. Bring to a boil; cook, stirring occasionally, until port just starts to turn syrupy, 8 to 10 minutes. (Sauce will continue to thicken as it cools.) Let cool completely. Remove cinnamon stick and serve, or store, covered, in refrigerator up to 1 week.
+### For boozy fruit:
+1. Combine all ingredients in a small saucepan.
+2. Bring to a boil; cook, stirring occasionally, until port just starts to turn syrupy, 8-10 minutes. (Sauce will continue to thicken as it cools.)
+3. Let cool completely.
+4. Remove cinnamon stick and serve, or store, covered, in refrigerator up to 1 week.
 
-1. Preheat oven to 350°F. Toast pecans on a baking sheet until darkened slightly, 10 to 12 minutes. Grind in a food processor.
-
-2. Increase heat to 400°F. Unfold pastry on a lightly floured work surface. Sprinkle pecans evenly over half of pastry; fold over other half and pinch edges to seal.
-
-3. Cut pastry in half crosswise; pinch cut edges to seal. Roll out one half to an 8-inch square.
-
-4. Brush 1 tbsp Dijon on one side of Brie. Place in center of rolled-out pastry, mustard-side down. Brush remaining 1 tbsp Dijon on top of Brie.
-
-5. Roll out remaining half of pastry to a 9-inch square. Center over brie and gently press around it to remove any air pockets. Trim pastry, leaving a 1/2-inch border around brie. Transfer to a parchment-lined baking sheet.
-
-6. Gather dough scraps and reroll to 1/8 inch thick. Using cookie cutters or a paring knife, cut out leaf shapes and score cutouts to create veins. Transfer cutouts to sheet with brie. Freeze until pastry is firm, about 20 minutes.
-
-7. Brush top and sides of pastry with egg. Adhere cutouts to top of pastry in a decorative pattern, and brush cutouts with egg.
-
-8. Bake 30 minutes. Reduce heat to 350°F and continue baking until pastry is puffed and golden brown, 25 to 30 minutes more. Serve hot, with Boozy Fruit, apple wedges, and baguette slices.
+### Baked brie
+1. Preheat oven to 350°F.
+2. Toast pecans on a baking sheet until darkened slightly, 10 to 12 minutes.
+3. Grind in a food processor.
+4. Increase heat to 400°F.
+5. Unfold pastry on a lightly floured work surface.
+6. Sprinkle pecans evenly over half of pastry; fold over other half and pinch edges to seal.
+7. Cut pastry in half crosswise; pinch cut edges to seal.
+8. Roll out one half to an 8-inch square.
+9. Brush 1 tbsp Dijon on one side of Brie. Place in center of rolled-out pastry, mustard-side down. Brush remaining 1 tbsp Dijon on top of Brie.
+10. Roll out remaining half of pastry to a 9-inch square. Center over brie and gently press around it to remove any air pockets. Trim pastry, leaving a 1/2-inch border around brie. Transfer to a parchment-lined baking sheet.
+11. Gather dough scraps and reroll to 1/8 inch thick. Using cookie cutters or a paring knife, cut out leaf shapes and score cutouts to create veins. Transfer cutouts to sheet with brie. Freeze until pastry is firm, about 20 minutes.
+12. Brush top and sides of pastry with egg. Adhere cutouts to top of pastry in a decorative pattern, and brush cutouts with egg.
+13. Bake 30 minutes.
+14. Reduce heat to 350°F and continue baking until pastry is puffed and golden brown, 25-30 minutes more.
+15. Serve hot, with Boozy Fruit, apple wedges, and baguette slices.
 
 ## Notes
 

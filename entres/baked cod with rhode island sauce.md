@@ -15,7 +15,7 @@ Prep time: 30 min
 
 ## Instructions
 1. Cook the potatoes.
-2. Cook the fish according to the instructions on the package.
+2. Cook the fish. 
 3. Stir together crème fraiche, chili sauce, salt and pepper in a bowl.
 4. Cut the cucumber into spears or slices.
 5. Serve cod with potatoes, cucumbers and Rhode Island sauce.

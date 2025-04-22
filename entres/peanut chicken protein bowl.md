@@ -25,13 +25,18 @@ Prep time: 10 min
 - 1 tsp. toasted sesame seeds
 
 ## Instructions
-1. Preheat oven to 425°. On a large baking sheet, toss potatoes and onion with 1 tbsp olive oil; season with salt and pepper. Bake until tender, 20 to 25 minutes.
-2. Meanwhile, in a large skillet over medium-high heat, heat 1 tbsp olive oil. Season chicken with garlic powder, ginger, salt, and pepper. Cook chicken, turning occasionally, until golden and no longer pink, about 8 minutes per side. Transfer to a cutting board and let rest 10 minutes, then thinly slice.
-3. In a small bowl, whisk garlic, lime juice, peanut butter, honey, and soy sauce until combined. Whisk in sesame oil and remaining 1 tbsp olive oil until smooth.
-4. Divide rice among bowls. Top with potato mixture, chicken, avocado, and spinach. Sprinkle with cilantro and sesame seeds. Drizzle with dressing.
+1. Preheat oven to 425°.
+2. On a large baking sheet, toss potatoes and onion with 1 tbsp olive oil; season with salt and pepper.
+3. Bake until tender, 20 to 25 minutes.
+4. Meanwhile, in a large skillet over medium-high heat, heat 1 tbsp olive oil.
+5. Season chicken with garlic powder, ginger, salt, and pepper.
+6. Cook chicken, turning occasionally, until golden and no longer pink, about 8 minutes per side.
+7. Transfer to a cutting board and let rest 10 minutes, then thinly slice.
+8. In a small bowl, whisk garlic, lime juice, peanut butter, honey, and soy sauce until combined.
+9. Whisk in sesame oil and remaining 1 tbsp olive oil until smooth.
+10. Divide rice among bowls. Top with potato mixture, chicken, avocado, and spinach. Sprinkle with cilantro and sesame seeds. Drizzle with dressing.
 
 ## Notes
-
 The beauty of grain bowls? They're infinitely adaptable. You can roast just about any veggie, use any number of toppings, and highlight any protein, and it'll just work combined in a grain bowl. We've created countless bowls that we love (we're looking at you, spicy salmon bowl), but when we're craving a chicken dinner (or packed lunch), then we turn to this peanut chicken bowl. With a homemade peanut dressing, sliced chicken, sweet potato, spinach, and avocado, this healthy dinner is one we love to meal prep at the beginning of the week, then assemble and feast on all week long.
 
 We used chicken breasts, but you can also switch that out for chicken thighs if you prefer. Toppings are basically a free for all. You can use anything in your fridge or pantry that you think would go well here, such as kimchi, pickled sushi ginger, or even crushed tortilla chips. The only thing we insist you keep on the bowl is the incredible peanut dressing. It's so simple to create and is worthy of being drizzled on almost any salad you please.

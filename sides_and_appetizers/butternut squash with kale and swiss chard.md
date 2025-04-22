@@ -27,7 +27,6 @@ Yield: 2 servings
 10. Combine the roasted butternut squash with the kale and chard mixture. Add the chili powder, salt, and pepper, toss to combine, and serve immediately.
 
 ## Notes
-
 Serve as a breakfast with a few fried eggs on top.
 
 "Stemming" kale: same technique as removing rosemary or thyme leaves.

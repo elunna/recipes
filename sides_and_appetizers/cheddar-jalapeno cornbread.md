@@ -18,9 +18,16 @@ Prep time: 30 min
 - 1/3 cup chopped drained pickled jalapenos
 
 ## Instructions
-1. Preheat oven to 400 degrees. Butter an 8-inch square baking pan. In a large bowl, stir together cornmeal, flour, sugar, baking powder, salt, and baking soda. In a medium bowl, whisk together melted butter, buttermilk, and eggs. Add buttermilk mixture to flour mixture and stir just until combined (do not overmix). Stir 1 1/4 cup grated cheddar, corn kernels, and jalapenos into batter. Transfer batter to pan and smooth top. Top with 1/4 cup grated cheddar.
-2. Bake until a toothpick inserted in center comes out clean, 20 to 25 minutes. Let cool in pan on a wire rack, 15 minutes, before serving.
-3. 
+1. Preheat oven to 400 degrees.
+2. Butter an 8-inch square baking pan.
+3. In a large bowl, stir together cornmeal, flour, sugar, baking powder, salt, and baking soda.
+4. In a medium bowl, whisk together melted butter, buttermilk, and eggs.
+5. Add buttermilk mixture to flour mixture and stir just until combined (do not overmix).
+6. Stir 1 1/4 cup grated cheddar, corn kernels, and jalapenos into batter.
+7. Transfer batter to pan and smooth top.
+8. Top with 1/4 cup grated cheddar.
+9. Bake until a toothpick inserted in center comes out clean, 20 to 25 minutes.
+10. Let cool in pan on a wire rack, 15 minutes, before serving.
 
 ## Notes
 

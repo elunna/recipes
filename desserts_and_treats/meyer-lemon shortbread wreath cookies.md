@@ -20,13 +20,29 @@ Glaze and Decorations
 - Small red, white, and green candies, such as nonpareils and pearls
 
 ## Instructions
-1. Cookies: Line 2 baking sheets with parchment. In the bowl of a mixer fitted with the paddle attachment, beat butter with zest on medium-high speed until fluffy, about 2 minutes. Beat in confectioners' sugar until pale and fluffy, about 1 minute more. Reduce speed to low. Beat in lemon juice and salt, then flour, until combined. Divide dough in half, transfer each to plastic wrap, pat into disks, wrap, and refrigerate until firm, at least 4 hours and up to 3 days (or freeze up to 1 month; thaw in refrigerator before using).
+1. Cookies: Line 2 baking sheets with parchment.
+2. In the bowl of a mixer fitted with the paddle attachment, beat butter with zest on medium-high speed until fluffy, about 2 minutes.
+3. Beat in confectioners' sugar until pale and fluffy, about 1 minute more.
+4. Reduce speed to low. Beat in lemon juice and salt, then flour, until combined.
+5. Divide dough in half, transfer each to plastic wrap, pat into disks, wrap, and refrigerate until firm, at least 4 hours and up to 3 days (or freeze up to 1 month; thaw in refrigerator before using).
 
-2. Preheat oven to 325 degrees. Working with one disk at a time, roll out dough on a lightly floured surface to a scant 1/4 inch thick. Stamp out rounds with a 3-inch cutter, preferably fluted. Transfer to prepared sheets, 1 inch apart. Use a 1- to 1 1/4-inch plain round cutter to stamp out centers of 3-inch rounds. Gather scraps; roll out again, stamping out more wreaths. Repeat with remaining disk. Refrigerate until firm, about 30 minutes.
+6. Preheat oven to 325 degrees.
+7. Working with one disk at a time, roll out dough on a lightly floured surface to a scant 1/4 inch thick. Stamp out rounds with a 3-inch cutter, preferably fluted. Transfer to prepared sheets, 1 inch apart. Use a 1- to 1 1/4-inch plain round cutter to stamp out centers of 3-inch rounds. Gather scraps; roll out again, stamping out more wreaths. Repeat with remaining disk. Refrigerate until firm, about 30 minutes.
 
-3. Bake, rotating sheets and rack positions halfway through, until set and pale golden on bottoms, 20 to 25 minutes. Let cool on sheets 5 minutes, then transfer to a wire rack; let cool completely. Cookies can be stored in an airtight container at room temperature up to 1 week before decorating.
+8. Bake, rotating sheets and rack positions halfway through, until set and pale golden on bottoms, 20 to 25 minutes.
+9. Let cool on sheets 5 minutes, then transfer to a wire rack; let cool completely.
 
-4. Glaze and Decorations: Brush herbs with egg white; sprinkle with granulated sugar. Transfer to wire rack; let stand until stiff and dry, at least 1 hour or, loosely covered, up to 1 day. In a small bowl, whisk together confectioners' sugar and lemon juice until smooth. One at a time, dip cookie tops in glaze; lift and tilt slightly for a few seconds, allowing excess to drip back into bowl. Transfer to wire rack; decorate with sugared herbs and candies. Let stand until set, about 2 hours. Store in an airtight container at room temperature, between sheets of parchment, up to 2 days.
+Cookies can be stored in an airtight container at room temperature up to 1 week before decorating.
+
+### Glaze and Decorations:
+1. Brush herbs with egg white; sprinkle with granulated sugar.
+2. Transfer to wire rack; let stand until stiff and dry, at least 1 hour or, loosely covered, up to 1 day.
+3. In a small bowl, whisk together confectioners' sugar and lemon juice until smooth.
+4. One at a time, dip cookie tops in glaze; lift and tilt slightly for a few seconds, allowing excess to drip back into bowl.
+5. Transfer to wire rack; decorate with sugared herbs and candies.
+6. Let stand until set, about 2 hours.
+
+Store in an airtight container at room temperature, between sheets of parchment, up to 2 days.
 
 
 ## Notes

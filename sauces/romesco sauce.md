@@ -17,15 +17,15 @@ Prep time: 25min
 - 1/2 tsp black pepper
 
 ## Instructions
-- Melt the cooking fat in a large skillet over medium-high heat.
-- When the fat is hot, add the almonds and toast for 3 min, stirring often.
-- Add the onion and cook, stirring, for 2 min.
-- Add the garlic and cook until aromatic, ~1 min.
-- Add chili powder and paprika and cook until the flavors open up, ~30 sec.
-- Finally, add the tomatoes, mix into the ingredients, and cook, stirring to bring up the tasty bits from the bottom of the pan, until the tomatoes are warmed through, ~2 min.
-
-Transfer the sauce mix to a food processor. Add the rest of the ingredients and blend on low until smooth, then pour into a serving dish or glass storage container. Allow to cool before refrigerating; keeps for up to 5 days.
-
+1. Melt the cooking fat in a large skillet over medium-high heat.
+2. When the fat is hot, add the almonds and toast for 3 min, stirring often.
+3. Add the onion and cook, stirring, for 2 min.
+4. Add the garlic and cook until aromatic, ~1 min.
+5. Add chili powder and paprika and cook until the flavors open up, ~30 sec.
+6. Finally, add the tomatoes, mix into the ingredients, and cook, stirring to bring up the tasty bits from the bottom of the pan, until the tomatoes are warmed through, ~2 min.
+7. Transfer the sauce mix to a food processor.
+8. Add the rest of the ingredients and blend on low until smooth, then pour into a serving dish or glass storage container.
+9. Allow to cool before refrigerating; keeps for up to 5 days.
 
 ## Notes
 

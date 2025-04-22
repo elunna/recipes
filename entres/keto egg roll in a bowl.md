@@ -22,11 +22,14 @@ Prep time: 25 min
 - 1 Tbsp. sesame seeds
 
 ## Instructions
-1. In a large skillet over medium heat, heat 1 tbsp avocado oil. Add garlic and ginger and cook until fragrant, 1 to 2 minutes. 
-2. Add pork and season with salt and pepper. Cook until no pink remains and pork is golden, about 8 minutes. Using a slotted spoon, transfer pork to a plate. 
-3. To skillet, add remaining tbsp avocado oil, onion, bell pepper, and mushroom. Cook until vegetables are tender, 3 minutes. 
-4. Add cabbage and cook, stirring until tender, 5 minutes. Add spinach and stir until wilted, 1 minute. Transfer pork back into skillet and add jalapeño and tamari. 
-5. Transfer mixture to a serving dish and garnish with green onions and sesame seeds before serving. 
+1. In a large skillet over medium heat, heat 1 tbsp avocado oil.
+2. Add garlic and ginger and cook until fragrant, 1 to 2 minutes. 
+3. Add pork and season with salt and pepper. Cook until no pink remains and pork is golden, about 8 minutes. Using a slotted spoon, transfer pork to a plate. 
+4. To skillet, add remaining tbsp avocado oil, onion, bell pepper, and mushroom. Cook until vegetables are tender, 3 minutes. 
+5. Add cabbage and cook, stirring until tender, 5 minutes.
+6. Add spinach and stir until wilted, 1 minute.
+7. Transfer pork back into skillet and add jalapeño and tamari. 
+8. Transfer mixture to a serving dish and garnish with green onions and sesame seeds before serving. 
 
 ## Notes
 

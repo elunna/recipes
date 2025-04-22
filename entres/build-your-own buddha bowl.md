@@ -21,11 +21,17 @@ Yield:
 - Flaky sea salt
 
 ## Instructions
-1. Bring a large pot of water to boil (ideally about 4 qt water). Once the water is boiling, add the rice and continue boiling for 25 minutes. Add the edamame and cook for 3 more minutes (it’s ok if the water doesn’t reach a rapid boil again). Then add the snap peas and cook for 2 more minutes.
-2. Drain well, and return the rice and veggies to the pot. Season to taste with 1 to 2 tbsp of tamari or soy sauce, and stir to combine.
-3. Divide the rice/veggie mixture and raw veggies into 4 bowls. Arrange cucumber slices along the edge of the bowl (see photos). Drizzle lightly with carrot ginger dressing and top with sliced green onion. Place a lime wedge or 2 in each bowl.
-4. When you’re ready to serve, divide the avocado into the bowls. Lightly drizzle sesame oil over the avocado, followed by a generous sprinkle of sesame seeds and flaky sea salt. Serve promptly.
-5. If you intend to have leftovers, wait to complete step 4 just before serving (otherwise the avocado will brown too soon). Leftover bowls keep well (avocado excluded) for 4 to 5 days in the refrigerator.
+1. Bring a large pot of water to boil (ideally about 4 qt water).
+2. Once the water is boiling, add the rice and continue boiling for 25 minutes.
+3. Add the edamame and cook for 3 more minutes (it’s ok if the water doesn’t reach a rapid boil again).
+4. Then add the snap peas and cook for 2 more minutes.
+5. Drain well, and return the rice and veggies to the pot.
+6. Season to taste with 1 to 2 tbsp of tamari or soy sauce, and stir to combine.
+7. Divide the rice/veggie mixture and raw veggies into 4 bowls. Arrange cucumber slices along the edge of the bowl.
+8. Drizzle lightly with carrot ginger dressing and top with sliced green onion. Place a lime wedge or 2 in each bowl.
+9. When you’re ready to serve, divide the avocado into the bowls. Lightly drizzle sesame oil over the avocado, followed by a generous sprinkle of sesame seeds and flaky sea salt. Serve promptly.
+
+If you intend to have leftovers, wait to complete step 4 just before serving (otherwise the avocado will brown too soon). Leftover bowls keep well (avocado excluded) for 4 to 5 days in the refrigerator.
 
 
 ## Notes

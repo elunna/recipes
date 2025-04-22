@@ -20,37 +20,14 @@ Yield:
 - 1 to 2 tbsp minced fresh basil leaves
 
 ## Instructions
-1. IN a large pot or Dutch oven, heat the cooking fat on
-medium-high heat and swirl to coat the bottom of the pan.
-
-2. Add the onions, garlic, oregano, and thyme and cook until
-the onions are translucent and the garlic is fragrant, 2 to
-3 minutes.
-3. ADD the tomatoes and chicken to the pot and cook, stir-
-ring occasionally, until the tomatoes have softened, 3 to
-4 minutes. 
-4. Add the green beans, zucchini, and squash and
-cook, stirring occasionally, until the vegetables are crisp-
-tender and the chicken is cooked through (with no pink
-remaining in the center), 5 to 6 minutes. 
-5. Add the red pep-
-per flakes, salt, and pepper, sprinkle on the basil, stir for
-30 seconds to incorporate, and serve immediately.
-
+1. In a large pot or Dutch oven, heat the cooking fat on medium-high heat and swirl to coat the bottom of the pan.
+2. Add the onions, garlic, oregano, and thyme and cook until the onions are translucent and the garlic is fragrant, 2 to 3 minutes.
+3. Add the tomatoes and chicken to the pot and cook, stirring occasionally, until the tomatoes have softened, 3 to 4 minutes. 
+4. Add the green beans, zucchini, and squash and cook, stirring occasionally, until the vegetables are crisp- tender and the chicken is cooked through (with no pink remaining in the center), 5 to 6 minutes. 
+5. Add the red pepper flakes, salt, and pepper, sprinkle on the basil, stir for 30 seconds to incorporate, and serve immediately.
 
 ### TAKE SOME SHORTCUTS 
-Take 5 minutes off your prep
-time by using a 28-oz can of diced tomatoes instead of
-fresh. (Don't drain them—just toss the whole can in the pot in
-step 2.) And while fresh herbs really make a flavor difference
-here, if you’re short on time, substitute 1/2 tsp each of
-
+Take 5 minutes off your prep time by using a 28-oz can of diced tomatoes instead of fresh. (Don't drain them—just toss the whole can in the pot in step 2.) And while fresh herbs really make a flavor difference here, if you’re short on time, substitute 1/2 tsp each of dried oregano and thyme, and 1-2 tsp of dried basil.
 
 ## Notes
-
-This meal is just begging to be spooned
-over vegetable noodles. Serve over
-Roasted Spaghetti Squash (page
-294), zucchini noodles (page 244), or
-use your spiral slicer and steam some
-sweet potato or carrot noodles.
+This meal is just begging to be spooned over vegetable noodles. Serve over Roasted Spaghetti Squash, zucchini noodles, or use your spiral slicer and steam some sweet potato or carrot noodles.

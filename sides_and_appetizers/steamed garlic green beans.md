@@ -11,7 +11,6 @@ Prep time: 15 min
 
 ## Instructions
 1. Place beans, garlic, butter, and cup water in a 2- to 2 1/2-qt shallow microwave-safe dish with a lid; season with salt.
-
 2. Cover, and microwave on high until beans are crisp-tender, 6 to 7 minutes. Stir, and pour off any excess liquid.
 
 ### How to Trim Green Beans
@@ -20,8 +19,7 @@ Unless you've purchased your beans pre-trimmed, you'll need to trim off the stem
 Since microwave times can vary between brands, you may want to begin checking the beans after five minutes to ensure they don't overcook.
 
 ## Notes
-
-This simple, three-ingredient side dish is ready in under 15 minutes.
+This simple, 3-ingredient side dish is ready in under 15 minutes.
 
 Steaming green beans in the microwave results in crisp-tender beans bathed in a simple garlic-butter sauce, and takes under 15 minutes from start to finish. To make this recipe, you'll combine trimmed green beans with a bit of water, some butter, and a smashed garlic clove in a covered, microwave-safe container. After six to seven minutes in the microwave, the beans will be bright green and just tender enough without being mushy. The garlic and butter adds a touch of richness and flavor, and all that's needed is a pinch of salt to finish things off.
 

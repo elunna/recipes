@@ -22,16 +22,14 @@ Avocado dip:
 - 1 tsk sambal oelek or sriracha sås
 
 ## Instructions
-
-1. Set oven to 225 ° C.
-
-2. Cut the potatoes into slices and mix with oil and season with salt and pepper. Pour the potatoes onto a plate and insert into the oven for about 15 minutes. Pour off the corn and mix with paprika powder and oregano. Pour the corn on the plate and put it back in the middle of the oven for about 10 minutes or until the potato is ready.
-
-3. avocado dip: Divide, core and mash the avocados into a bowl. Cut the tomatoes into small cubes and turn down. Taste with pressed garlic, sambal oelek and salt.
-
-4. Fry the chops in the oil in a frying pan for about 8 minutes, turn occasionally. Season with salt and pepper. Lower the heat and pour in the glaze at the end of the roasting period.
-
-5. Serve the chops with potatoes, corn and avocado dip.
+1. Set oven to 225°C.
+2. Cut the potatoes into slices and mix with oil and season with salt and pepper.
+3. Pour the potatoes onto a plate and insert into the oven for about 15 minutes.
+4. Pour off the corn and mix with paprika powder and oregano.
+5. Pour the corn on the plate and put it back in the middle of the oven for about 10 minutes or until the potato is ready.
+6. Avocado Dip: Divide, core and mash the avocados into a bowl. Cut the tomatoes into small cubes and turn down. Taste with pressed garlic, sambal oelek and salt.
+7. Fry the chops in the oil in a frying pan for about 8 minutes, turn occasionally. Season with salt and pepper. Lower the heat and pour in the glaze at the end of the roasting period.
+8. Serve the chops with potatoes, corn and avocado dip.
 
 ## Notes
 

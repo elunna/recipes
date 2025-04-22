@@ -15,8 +15,12 @@ Yield: 3 servings
 - 1 Fresno chile, thinly sliced
 
 ## Instructions
-1. Whisk garlic, lime juice, soy sauce, honey, 1 Tbsp. oil, and 1/2 tsp. sesame seeds in a small bowl. Season salmon fillets with salt and place in a resealable plastic bag; add half of marinade. Seal bag, pressing out air, and let salmon sit 30 minutes. Reserve remaining marinade.
-2. Preheat broiler. Toss scallions with remaining 2 tsp. oil on sizzle platter; broil until lightly charred, about 3 minutes. Remove salmon from marinade and set on top of scallions. Spoon some reserved marinade over and broil until salmon is charred around edges, about 6 minutes (watch closely to keep from burning). Spoon more marinade over; top with chile. Broil until salmon is charred and medium-rare at thickest part, about 2 minutes. Sprinkle with more sesame seeds.
+1. Whisk garlic, lime juice, soy sauce, honey, 1 Tbsp. oil, and 1/2 tsp. sesame seeds in a small bowl.
+2. Season salmon fillets with salt and place in a resealable plastic bag; add half of marinade. Seal bag, pressing out air, and let salmon sit 30 minutes. Reserve remaining marinade.
+3. Preheat broiler.
+4. Toss scallions with remaining 2 tsp. oil on sizzle platter; broil until lightly charred, about 3 minutes.
+5. Remove salmon from marinade and set on top of scallions. Spoon some reserved marinade over and broil until salmon is charred around edges, about 6 minutes (watch closely to keep from burning). Spoon more marinade over; top with chile. Broil until salmon is charred and medium-rare at thickest part, about 2 minutes.
+6. Sprinkle with more sesame seeds.
 
 
 ## Notes
