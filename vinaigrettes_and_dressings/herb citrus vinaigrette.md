@@ -16,25 +16,9 @@ Yield:
 - 1/2 tsp black pepper
 
 ## Instructions
-1. WHISK together the orange juice, lemon juice,
-lime juice, garlic, and mustard powder in a small
-mixing bowl. 
-2. Drizzle in the olive oil while whisk-
-ing steadily to emulsify. 
-3. Add the thyme, cilantro,
-parsley, salt, and pepper and whisk until blended.
-
+1. Whisk together the orange juice, lemon juice, lime juice, garlic, and mustard powder in a small mixing bowl. 
+2. Drizzle in the olive oil while whisking steadily to emulsify. 
+3. Add the thyme, cilantro, parsley, salt, and pepper and whisk until blended.
 
 ## Notes
-This dressing is great on our Stir-Fry Chicken (page
-340), and also makes the perfect marinade or topping
-for fish, shrimp, or scallops, or a fresh green salad.
-
-
-
-
-
-
-
-
-
+This dressing is great on our Stir-Fry Chicken, and also makes the perfect marinade or topping for fish, shrimp, or scallops, or a fresh green salad.

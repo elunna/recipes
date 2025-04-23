@@ -11,26 +11,12 @@ Yield:
 - Salt and black pepper
 
 ## Instructions
-1. MIX together the raspberries, vinegar, walnuts,
-and cilantro in a small bowl.
-2.  Drizzle in the olive
-oil while whisking steadily to emulsify. 
-3. Adjust
-to taste with salt and pepper and whisk until
-fully blended.
-4. 
-5. 
+1. Mix together the raspberries, vinegar, walnuts, and cilantro in a small bowl.
+2. Drizzle in the olive oil while whisking steadily to emulsify. 
+3. Adjust to taste with salt and pepper and whisk until fully blended.
 
 ## Notes
-
-This dressing is used in our Harvest Grilled Chicken
-Salad (page 232), but it’s also delicious on a summer
-salad of baby spinach, chopped berries (blueber-
-ries, blackberries, strawberries, and raspberries),
-and diced cucumbers, or mix it into any variation of
-a Protein Salad (page 161). You can also swap out
-the raspberries for a different berry in this recipe,
-or use crushed pomegranate seeds in the winter.
+This dressing is used in our Harvest Grilled Chicken Salad, but it’s also delicious on a summer salad of baby spinach, chopped berries (blueberries, blackberries, strawberries, and raspberries), and diced cucumbers, or mix it into any variation of a Protein Salad. You can also swap out the raspberries for a different berry in this recipe, or use crushed pomegranate seeds in the winter.
 
 
 

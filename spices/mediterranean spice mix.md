@@ -10,10 +10,6 @@ Yield:
 - 1 Tbls dried parsley or lavender leaves
 
 ## Instructions
-1. 
-2. 
-3. 
+1. Blend spices and then grind them all together in a coffee grinder.
 
 ## Notes
-
-If you're using whole spices toast them and then blend with powdered/leaf spices and then grind them all together in a coffee grinder.

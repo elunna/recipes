@@ -16,16 +16,16 @@ Prep time: 30 min
 - 1 for mozzarella (125g)
 - 1/2 dl basil pesto
 
-
 ## Instructions
-
 1. Set oven to 225°C.
-
-2. Boil the broth with the cream and thyme in a saucepan. Peel and cut the potatoes into about 1 cm pieces and place in the saucepan. Cut broccoli into smaller pieces and place in the saucepan. Cook for about 10 minutes, or until the potato is soft. Mix the soup smoothly. Taste with salt and pepper.
-
-3. Bake the baguettes according to the instructions on the package.
-
-4. Cut the tomatoes and mozzarella into slices. Spread the pesto on the breads and place on tomatoes and mozzarella. Top with a little salt and pepper.
+2. Boil the broth with the cream and thyme in a saucepan.
+3. Peel and cut the potatoes into about 1 cm pieces and place in the saucepan.
+4. Cut broccoli into smaller pieces and place in the saucepan.
+5. Cook for about 10 minutes, or until the potato is soft.
+6. Mix the soup smoothly. Taste with salt and pepper.
+7. Bake the baguettes according to the instructions on the package.
+8. Cut the tomatoes and mozzarella into slices.
+9. Spread the pesto on the breads and place on tomatoes and mozzarella. Top with a little salt and pepper.
 
 ## Notes
 

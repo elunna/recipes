@@ -13,17 +13,9 @@ Yield:
 - 1/4 tsp black pepper
 
 ## Instructions
-1. WHISK together the garlic, jalapefio, and lime
-juice in a small mixing bowl. 
-
-2. Drizzle in the olive
-oil while whisking steadily to emulsify. 
-3. Add the
-cilantro, parsley, salt, and pepper and whisk until
-blended.
+1. Whisk together the garlic, jalapeno, and lime juice in a small mixing bowl. 
+2. Drizzle in the olive oil while whisking steadily to emulsify. 
+3. Add the cilantro, parsley, salt, and pepper and whisk until blended.
 
 ## Notes
-
-This is a delicious marinade for a Perfect Grilled
-Steak (page 154), Perfect Seared Chicken Breast
-(page 157), or Perfect Grilled Shrimp (page 158).
+This is a delicious marinade for a Perfect Grilled Steak, Perfect Seared Chicken Breast, or Perfect Grilled Shrimp.

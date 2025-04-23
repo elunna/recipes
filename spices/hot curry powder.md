@@ -14,10 +14,7 @@ Yield:
 - Cayenne or red pepper flakes as needed
 
 ## Instructions
-1. 
-2. 
-3. 
+1. If you're using whole spices toast them first. 
+2. Blend spices and then grind them all together in a coffee grinder.
 
 ## Notes
-
-If you're using whole spices toast them and then blend with powdered/leaf spices and then grind them all together in a coffee grinder.

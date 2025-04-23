@@ -11,19 +11,10 @@ Yield:
 - 1/2 tsp salt
 - 1/4 tsp black pepper
 
-
 ## Instructions
-1. MIX together the vinegar, oregano, garlic, and
-mustard powder in a small bowl. 
-2. Add the olive
-oil in a steady stream while whisking to emul-
-sify. 
-3. Adjust the seasoning with salt and pepper
-and whisk until fully incorporated.
-
+1. Mix together the vinegar, oregano, garlic, and mustard powder in a small bowl. 
+2. Add the olive oil in a steady stream while whisking to emulsify. 
+3. Adjust the seasoning with salt and pepper and whisk until fully incorporated.
 
 ## Notes
-
-This is a great marinade for chicken or shrimp,
-or it can be used instead of the lemon oil in
-our Green Cabbage Slaw (page 282).
+This is a great marinade for chicken or shrimp, or it can be used instead of the lemon oil in our Green Cabbage Slaw.
